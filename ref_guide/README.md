@@ -16,8 +16,6 @@
 
 [Physical Health and it's affect on what we see](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
 
-[a Myth System to try]
-
 [Music](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/music)
 
 ##
