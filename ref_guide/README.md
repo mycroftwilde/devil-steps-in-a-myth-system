@@ -20,6 +20,8 @@ Starting Points
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/story)
 
+[OUR Affect on Quorum Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/story)
+
 ##
 
 [Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/art)
