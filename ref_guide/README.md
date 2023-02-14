@@ -14,7 +14,7 @@ Starting Points
 
 ##
 
-[What's Real?](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/reality) 
+[So, What's Real?](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/reality) 
 
 [Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsys1tems)
 
