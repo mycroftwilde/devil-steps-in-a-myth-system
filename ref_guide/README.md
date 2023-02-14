@@ -4,7 +4,7 @@
 
 [General Concept - Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/concept)
 
-[What's Real? Myth Systems, and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsystems)
+[What's Real? Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsystems)
 
 [Story, Meta Story, and what it tells us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/story)
 
