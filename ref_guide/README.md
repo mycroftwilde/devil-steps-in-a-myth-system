@@ -56,15 +56,18 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
 
 ##
 
-#### Extra Variables
+#### Perception Variables
 
 [Our Physical Health and it's affect on our Personal Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
 
 ##
 
-#### Devil Steps in a Myth System 
+#### The Project: Devil Steps in a Myth System 
+
 
 [My Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/method)
+
+[
 
 ##
 
