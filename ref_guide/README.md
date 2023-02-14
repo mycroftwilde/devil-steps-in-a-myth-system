@@ -27,7 +27,7 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
             
  My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place. I don't want to over think it too much, so expect some grammer and spelling issues while it's being put together. I'll re-review once it's complete and correct it. 
  
- As well, the things I'm attempting to articulate could be considered sacraligous to some ... I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say, to build an image and then express that image.       
+ As well, I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say, to build an image and then express that image, in the best way I can.       
 
 ##
 
