@@ -6,7 +6,7 @@
 
 ##
 
-[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/concept)
+[General Concept - Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/concept)
 
 [Myth Systems](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsystems)
 
