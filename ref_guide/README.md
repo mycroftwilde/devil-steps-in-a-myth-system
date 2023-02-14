@@ -48,7 +48,7 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/story)
 
-[OUR Affect on the Quorum and Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/story)
+[OUR Affect on the Quorum and Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realitya)
 
 ##
 
