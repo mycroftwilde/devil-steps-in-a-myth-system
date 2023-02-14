@@ -23,4 +23,4 @@ Even in the room we are sitting in, or chair we getting up from at the coffee sh
 
 Now, to add, new things appear brighter and in more detail, because our brain is taking it in, I don't like the "seeing if it's dangerous" but because we've been woken from "background representional understanding" of everyday to actually... awake? our attention is a tricky thing like that. 
 
-[Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide)
+[Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
