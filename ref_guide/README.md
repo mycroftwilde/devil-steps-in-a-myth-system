@@ -35,36 +35,36 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
 
 #### Starting Points:
       
--  [My Pressuppositions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/presupps)
+-  [My Pressuppositions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/presupps)
 
--  [Information Structure](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/infostructure)
+-  [Information Structure](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/infostructure)
 
-
-##
-
-[So, What's Real?](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/reality) 
-
-[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsystems)
-
-[Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/story)
-
-[OUR Affect on the Quorum and Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realitya)
 
 ##
 
-[Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/art)
+[So, What's Real?](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) 
+
+[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems)
+
+[Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
+
+[OUR Affect on the Quorum and Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya)
+
+##
+
+[Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
 ##
 
 #### Perception Variables
 
-[Our Physical Health and it's affect on our Personal Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
+[Our Physical Health and it's affect on our Personal Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth)
 
 ##
 
 #### The Project: Devil Steps in a Myth System 
 
-[Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/method)
+[Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
 
 ##
 
@@ -76,8 +76,8 @@ This should also give you a better understanding of seeing another persons syste
 
 (I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art ... it may, however, diminish the ego of the artist who isn't prepared, or, doesn't really know what they are saying ... )
 
-[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/artist)
+[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/artist)
 
 ##
 
-[Return to Main Page](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master)
+[Return to Main Page](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main)
