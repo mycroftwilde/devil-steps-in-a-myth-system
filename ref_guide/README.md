@@ -64,7 +64,7 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
 
 #### The Project: Devil Steps in a Myth System 
 
-[A Dueling Artists Dueling Art within a Dueling Art] (Coming Soon)
+[A Dueling Artists Dueling Art within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
 
 ##
 
