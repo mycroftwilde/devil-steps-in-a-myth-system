@@ -19,7 +19,7 @@
 
 ##
 
-[Art, Art Rap and the Definitions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/art)
+[Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/art)
 
 [Music](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/music)
 
