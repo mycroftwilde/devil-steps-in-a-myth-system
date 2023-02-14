@@ -1,8 +1,6 @@
 ## Ref Guide Page List
 
-##
-
-### Ref Guide 
+### Ref Guide Table of Contents
 
 ##
 
