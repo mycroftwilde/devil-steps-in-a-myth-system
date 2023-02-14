@@ -6,6 +6,6 @@ My brain doesn't think linerally, also, in another sense it thinks hyper-lineral
 
 -M
 
-[Working Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide)
+[Working Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
 
 ![BannerLogoMid](/art/MW.png?raw=true "BannerMid")
