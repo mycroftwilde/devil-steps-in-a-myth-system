@@ -24,7 +24,7 @@
 
 Devil Steps in a Myth System 
 
-[Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/method)
+[My Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/method)
 
 ##
 
