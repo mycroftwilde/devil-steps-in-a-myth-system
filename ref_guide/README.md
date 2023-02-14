@@ -8,7 +8,7 @@
 
 The Approach:
             
- My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place and to do it QUICKLY... I need to move to the next phase.  
+ My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place and not overthink it too much.
  
  As well, the things I'm attempting to articulate could be considered sacraligous to some... I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say, to build an image and then express that image.       
 
