@@ -12,6 +12,8 @@ The Approach:
  
  As well, the things I'm attempting to articulate could be considered sacraligous to some... I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say, to build an image and then express that image.       
 
+##
+
 Starting Points:
       
 -  [My Pressuppositions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/presupps)
