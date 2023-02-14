@@ -2,12 +2,15 @@
 
 ##
 
-General Concept - Devil Steps in a Myth System:
+Devil Steps in a Myth System
+General Concept:
 
-It is, roughly speaking, saying that we must first take agency with the reality we are woken from before we can KNOW what it is to live. 
 
-It also overlays with the idea that a Myth System, the lens system with which we interpretate our experiences... it isn't "Truth"... and isn't really "REAL" in the way we think of the word "Real," anyway... it's a built systems interprative experience...it's a part of the human experience to create that system or to have it... and that system will always house Devils. 
+It is, roughly speaking, saying that we must first take agency with the reality we are woken from before we can live. 
 
+It also overlayed with the idea that a Myth System, the lens system with which we interpretate our experiences... it isn't "Real"... Not in the way we think of the word "Real," anyway... it's a built systems interprative experience...it's a part of the human experience to create that system and that system will always house ... problems...our Devils, if we will.  
+
+This project is intended to represent that we must approach the things we fear, perhaps even walk the same steps of the devil himself... in advocay for our personal agency and so that we can finally make a choice of our own.
 
 ##
 
