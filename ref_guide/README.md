@@ -6,7 +6,12 @@ General Concept - Devil Steps in a Myth System:
 
 It is, roughly speaking, saying that we must first take agency with the reality we are woken from before we can KNOW what it is to live. 
 
-It also overlays with the idea that a Myth System, the lens system with which we interpretate our experiences... it isn't "Truth"... and isn't really "REAL" in the way we think of the word "Real," anyway... it's a built systems interprative experience...it's a part of the human experience to create that system or to have it... and that system will always house... Inherited Devils, and the ones we create ourselves.
+It also overlays with the idea that a Myth System, the lens system with which we interpretate our experiences... it isn't "Truth"... and isn't really "REAL" in the way we think of the word "Real," anyway... it's a built systems interprative experience...it's a part of the human experience to create that system or to have it... and that system will always house Devils. 
+
+“I must not fear. Fear is the mind-killer. Fear is the little-death that brings total obliteration. I will face my fear. I will permit it to pass over me and through me. And when it has gone past I will turn the inner eye to see its path. Where the fear has gone there will be nothing. Only I will remain.” 
+
+- Frank Herbert
+            (Interestingly, this was noted before exposure therapy was widely used like it is now...) 
 
 
 ##
