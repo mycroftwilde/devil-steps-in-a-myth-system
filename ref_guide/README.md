@@ -6,9 +6,11 @@
 
 ##
 
-[Starting Point]
-      -  [My Pressuppositions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/presupps)
-      -  [Information Structure](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/infostructure)
+Starting Points
+      
+-  [My Pressuppositions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/presupps)
+
+-  [Information Structure](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/infostructure)
 
 ##
 
