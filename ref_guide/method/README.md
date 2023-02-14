@@ -4,6 +4,6 @@ Using Language, Music, and Overlaying Images - combined (See the reels on my ins
 
 The format is being planned as a Limited-Comic-Like-Series with a Monthly release schedule. Art will also reflect that overlay. I'd like to see if I can take overlaying influnences, like Ol'Uncle Alan did, and do it my way ... while referencing what he did with League of Ex-G
 
-![BannerLogoMid](/art/CoverExampleMockUp?raw=true "BannerMid")
+![BannerLogoMid](/art/CoverExampleMockUp.png?raw=true "BannerMid")
 
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
