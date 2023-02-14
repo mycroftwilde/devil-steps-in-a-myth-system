@@ -6,6 +6,11 @@
 
 ##
 
+[Starting Point - My Pressuppositions and Structure for Information](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/presupps)
+
+
+##
+
 [What's Real?](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/reality) 
 
 [Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsys1tems)
