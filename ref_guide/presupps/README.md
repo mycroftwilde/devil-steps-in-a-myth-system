@@ -10,7 +10,7 @@
 
 ##
 
-So, let's start with: 
+So, let's start 1:
 
 1. We all see the world differently. 
 It's more than that. We experience reality diferently. If we put all of the living humans in the same place on the earth, and told them all to look at the same thing... not a single person would experience the same thing. 
@@ -18,7 +18,7 @@ The starting resonances, the amount of things affecting our senses, how our atte
 
 ##
 
-Now, let's get to 2. 
+Now, let's get to 2:
 
 2. There is too much information for us to intrepret everything we see. 
 Even in the room we are sitting in, or chair we getting up from at the coffee shop...there is too much to see in color, texture, smell, etc, etc, etc, and our brain has to have a way of determining what is important for it to look and then why. We've seen coffee before, tasted it before, we know that coffee is great first thing in the morning! So, when we see it, we know what it is and our brain moves onto the next thing. 
