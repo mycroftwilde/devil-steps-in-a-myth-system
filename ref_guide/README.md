@@ -34,7 +34,7 @@ We must also consider that your view, and experience in what you see is through 
 
 This should also give you a better understanding of seeing another persons system, while understanding the reasons for "why" it is expressed the way that it is. 
 
-(I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art.... it may, however, diminish the ego of the artist who isn't prepared, or, doesn't know what they are saying...)
+(I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art.... it may, however, diminish the ego of the artist who isn't prepared, or, doesn't really know what they are saying...)
 
 ##
 
