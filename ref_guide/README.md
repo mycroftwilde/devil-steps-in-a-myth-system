@@ -6,11 +6,13 @@
 
 ##
 
-[What's Real? Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsys1tems)
+[What's Real?](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/reality) 
+
+[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/mythsys1tems)
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/story)
 
-[Physical Health and it's affect on Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
+[Physical Health and it's affect on our Personal Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
 
 ##
 
@@ -26,7 +28,7 @@ We must also consider that your view, and experience in what you see is through 
 
 This should also give you a better understanding of seeing another persons system, while understanding the reasons for "why" it is expressed the way that it is. 
 
-(I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art.... it may, however, diminish the ego of the artist who really isn't prepared.) 
+(I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art.... it may, however, diminish the ego of the artist who really isn't prepared or doesn't know what they are saying...)
 
 ##
 
