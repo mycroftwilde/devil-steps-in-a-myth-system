@@ -68,7 +68,7 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
 
 #### The Artist
 
-We must also consider that your view, and experience in what you see is through your myth system and lens ... they are interpreting what my system is trying to express. To better understand the building thoughts over a lifetime, that have ... solidified into this project ... you should understand how I'm built to better understand this whole. 
+We must also consider that your view, and experience in what you see, is through your myth system and lens ... and they are interpreting what my system is trying to express. To better understand the building thoughts over a lifetime, that have ... solidified into this project ... you should understand how I'm built to better understand this whole. 
 
 This should also give you a better understanding of seeing another persons system, while understanding the reasons for "why" it is expressed the way that it is. 
 
