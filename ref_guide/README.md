@@ -1,8 +1,4 @@
-### Reference Guide List
-
-##
-
-#### Table of Contents
+### Table of Contents
 
 ##
 
