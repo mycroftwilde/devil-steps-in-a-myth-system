@@ -33,7 +33,7 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
 
 ##
 
-Starting Points:
+#### Starting Points:
       
 -  [My Pressuppositions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/presupps)
 
@@ -56,18 +56,19 @@ Starting Points:
 
 ##
 
-Extra Variables
+#### Extra Variables
 
 [Our Physical Health and it's affect on our Personal Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
 
 ##
 
-Devil Steps in a Myth System 
+#### Devil Steps in a Myth System 
 
 [My Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/method)
 
 ##
 
+#### The Artist
 
 We must also consider that your view, and experience in what you see is through your myth system and lens ... they are interpreting what my system is trying to express. To better understand the building thoughts over a lifetime, that have ... solidified into this project ... you should understand how I'm built to better understand this whole. 
 
