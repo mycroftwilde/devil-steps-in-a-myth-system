@@ -2,7 +2,7 @@
 
 ##
 
-Devil Steps in a Myth System - General Concept:
+#### Devil Steps in a Myth System - General Concept:
 
 
 It is, roughly speaking, saying that we must first take agency with the reality we are woken from before we can live. 
@@ -13,7 +13,7 @@ This project is intended to represent that we must approach the things we fear, 
 
 ##
 
-Caution: 
+#### Caution: 
 
 This idea, or it's approach, could be considered sacraligous to some ... I would urge you to remember the below - if you have any reactions to the things you read. 
 
@@ -25,7 +25,7 @@ This idea, or it's approach, could be considered sacraligous to some ... I would
 
 ##
 
-The Approach:
+#### General Approach:
             
  My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place. I don't want to over think it too much, so expect some grammer and spelling issues while it's being put together. I'll re-review once it's complete and correct it. 
  
