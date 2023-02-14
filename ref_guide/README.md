@@ -2,13 +2,15 @@
 
 ##
 
-[General Concept - Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/concept)
+[General Concept - Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/concept) :
+
+It's, roughly speaking, saying that we must first take agency with the reality we are woken from before we can KNOW what it is to live. It also overlays with the idea that a myth system, the lens system with which we interpretate our experiences... it isn't "truth"... it's not real... it's a built systems interprative experience...it's a part of the human experience to create that system or to have it... and that system will always house inherited devils.  
 
 ##
 
 The Approach:
             
- My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place and not overthink it too much.
+ My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place. I don't want to over think it too much, so expect some grammer and spelling issues while it's being put together. I'll re-review once it's complete and correct it. 
  
  As well, the things I'm attempting to articulate could be considered sacraligous to some... I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say, to build an image and then express that image.       
 
