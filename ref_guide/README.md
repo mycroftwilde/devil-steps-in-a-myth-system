@@ -21,8 +21,6 @@
 
 [Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/art)
 
-[Music](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/music)
-
 ##
 
 [Physical Health and it's affect on our Personal Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
