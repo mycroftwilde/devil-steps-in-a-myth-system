@@ -4,6 +4,6 @@ I've written the structure for this in my head ... so many different ways. Orien
 
 My brain doesn't think linerally, also, in another sense it thinks hyper-linerally... hyper-linerally but with a web's structure? something like that... 
 
-Let's have some fun now. 
+I think it's really time to have some fun... don't you? 
 
 -M
