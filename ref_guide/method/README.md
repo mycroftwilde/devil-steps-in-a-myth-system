@@ -4,6 +4,6 @@ Using Rap, Music, and Overlaying Images, combined (See the reels on my instagram
 
 The format is being planned as a limited-comic-like Series with a monthly release schedule. Art will also reflect that overlay. I'd like to see if I can take overlaying influnences, like Ol'Uncle Alan did, and do it my way ... while referencing what he did with League of Ex-G
 
-*Further details to be posted at a later time.
+* Further details to be posted at a later time.
 
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide)
