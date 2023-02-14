@@ -2,9 +2,9 @@
 
 ##
 
-1. We all see the world differently. (I mean, duh, right?)
+1. We all see/exerpience reality differently. (I mean, duh, right?)
 
-2. There is too much information for us to intrepret everything we see. 
+2. There is too much information at any given moment of our lives for us to intrepret everything we see
 
 ##
 
