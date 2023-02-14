@@ -6,11 +6,17 @@
 
 ##
 
-Starting Points
+The Approach:
+            
+            
+ This approach could be visualized as a sort of scatter shot approach to getting everything I need in one place... so that what I'm attempting to articulate can be better understood, as well as insert proper information ahead of time for things that could be considered sacraligous to some... I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say to build an image.       
+
+Starting Points:
       
 -  [My Pressuppositions](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/presupps)
 
 -  [Information Structure](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/infostructure)
+
 
 ##
 
@@ -28,6 +34,8 @@ Starting Points
 
 ##
 
+Extra Variables
+
 [Our Physical Health and it's affect on our Personal Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/realityhealth)
 
 ##
@@ -35,6 +43,8 @@ Starting Points
 Devil Steps in a Myth System 
 
 [My Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/method)
+
+
 
 ##
 
