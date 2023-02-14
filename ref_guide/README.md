@@ -2,9 +2,7 @@
 
 ##
 
-Devil Steps in a Myth System
-
-General Concept:
+Devil Steps in a Myth System - General Concept:
 
 
 It is, roughly speaking, saying that we must first take agency with the reality we are woken from before we can live. 
