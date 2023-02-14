@@ -8,6 +8,13 @@ It is, roughly speaking, saying that we must first take agency with the reality 
 
 It also overlays with the idea that a Myth System, the lens system with which we interpretate our experiences... it isn't "Truth"... and isn't really "REAL" in the way we think of the word "Real," anyway... it's a built systems interprative experience...it's a part of the human experience to create that system or to have it... and that system will always house Devils. 
 
+
+##
+
+Caution: 
+
+This idea, or it's approach, could be considered sacraligous to some... I would urge you to remember the below - if you have any reactions to the things you read. 
+
 “I must not fear. Fear is the mind-killer. Fear is the little-death that brings total obliteration. I will face my fear. I will permit it to pass over me and through me. And when it has gone past I will turn the inner eye to see its path. Where the fear has gone there will be nothing. Only I will remain.” 
 
 - Frank Herbert
