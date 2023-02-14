@@ -66,17 +66,16 @@ Devil Steps in a Myth System
 
 [My Dueling Art, within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/ref_guide/method)
 
-
-
 ##
 
-[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/artist)
 
 We must also consider that your view, and experience in what you see is through your myth system and lens ... they are interpreting what my system is trying to express. To better understand the building thoughts over a lifetime, that have ... solidified into this project ... you should understand how I'm built to better understand this whole. 
 
 This should also give you a better understanding of seeing another persons system, while understanding the reasons for "why" it is expressed the way that it is. 
 
 (I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art ... it may, however, diminish the ego of the artist who isn't prepared, or, doesn't really know what they are saying ... )
+
+[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/artist)
 
 ##
 
