@@ -16,4 +16,8 @@
 
 ##
 
+[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master/artist)
+
+##
+
 [Return to Main Page](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/master)
