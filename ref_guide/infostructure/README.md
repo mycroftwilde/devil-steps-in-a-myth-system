@@ -20,16 +20,16 @@ Picture all the catagorizes you've ever been told.
 
 Here are a few to get you started, if it helps:
 
-Fiction
-Non-Fiction
-Fiction Genre and Sub-Genre
-Non-Fiction General Subject
-Author
-Size of Book
-Color of Books Cover
-Year of Publication
-Publisher
-Age Rating
+- Fiction
+- Non-Fiction
+- Fiction Genre and Sub-Genre
+- Non-Fiction General Subject
+- Author
+- Size of Book
+- Color of Books Cover
+- Year of Publication
+- Publisher
+- Age Rating
 
 Try to see how that structure for information is setup.
 
