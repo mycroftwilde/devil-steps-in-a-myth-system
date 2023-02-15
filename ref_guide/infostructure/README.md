@@ -4,7 +4,9 @@
 
 I'm not sure how to preface this one quickly, besides saying "I'm a weird, dude, but..." or something like that, haha... 
 
-So, I'm a weird dude, but ... :P ... have you ever tried to create your own organizational system that encompases all information? 
+So, I'm a weird dude, but ... haha
+
+... have you ever tried to create your own organizational system that encompases all information? 
 
 No? ... Told you, weird dude... haha
 
