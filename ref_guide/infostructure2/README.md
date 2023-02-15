@@ -2,6 +2,7 @@
 
 ##
 
+![BannerLogoMid](/art/info1.png?raw=true "BannerMid")
 
 ##
 
