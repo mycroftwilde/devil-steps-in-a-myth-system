@@ -8,7 +8,7 @@
 ![2](/art/info2.png?raw=true "2")
 
 
-![3](/art/info2.png?raw=true "3")
+![3](/art/info3.png?raw=true "3")
 
 ##
 
