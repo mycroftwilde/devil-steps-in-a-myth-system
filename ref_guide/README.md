@@ -3,7 +3,7 @@
 ### Devil Steps in a Myth System - General Concept:
 
 
-It is, roughly speaking, saying that we must first take agency from the reality that we are woken from before we can live. 
+The idea behind this statement is that, roughly, we must take agency from the reality we are given before we can be truly considered "alive."
 
 It is also overlayed with the idea that a Myth System, the lens system with which we interpretate our experiences ... isn't "Real" ... not in the way we think of the word "Real," anyway ... it's a built systems interprative experience ... it's a part of the human experience to create that system, but, that system will always house ... problems ... our Devils, if we will.  
 
