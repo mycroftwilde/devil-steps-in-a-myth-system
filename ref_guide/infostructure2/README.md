@@ -21,6 +21,9 @@
 
 [Information Structure, Part 1](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/infostructure)
 
+[Information Structure, Part 3](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/infostructure3)
+
+
 ##
 
 #### [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
