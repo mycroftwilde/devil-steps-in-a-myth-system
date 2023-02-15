@@ -5,7 +5,7 @@
 ![1](/art/info1.png?raw=true "1")
 
 
-![2](/art/info1.png?raw=true "2")
+![2](/art/info2.png?raw=true "2")
 
 
 ##
