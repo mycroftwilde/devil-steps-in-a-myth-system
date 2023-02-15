@@ -2,13 +2,15 @@
 
 ##
 
-I'm not sure how to preface this one quickly, besides saying "I'm a weird, dude, but..." or something like that, haha... 
+I'm not sure how to preface this one quickly, besides saying "I'm a Weird Dude, but..." or something like that, haha... 
 
-So, I'm a weird dude, but ... haha
+So, I'm a Weird Dude, but ... haha
 
 ... have you ever tried to create your own organizational system that encompases all information? 
 
-No? ... Told you, weird dude... haha
+No? 
+
+... See, Told you, I'm Weird Dude... haha
 
 Let's imagine it like this: 
 
