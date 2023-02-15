@@ -8,6 +8,8 @@
 ![2](/art/info2.png?raw=true "2")
 
 
+![3](/art/info2.png?raw=true "3")
+
 ##
 
 [Information Structure, Part 1](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/infostructure)
