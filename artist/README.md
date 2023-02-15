@@ -24,6 +24,8 @@ I'm articulate and smart, I've spent alot of time thinking and learning, and lea
 
 I felt like... starting here, this way, may be the best way to get a feel for how I describe things before you should read the story of some of the events that helped make me... well, at least from the perseptive of this "current self" of mine. 
 
+I'm also writing this ...idk, "sudo-live," I guess, as an antiperfectionist exersize for myself. 
+
 ##
 
 #### Topics:
