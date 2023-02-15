@@ -12,6 +12,8 @@ So, if you were to ask is this hard to write or talk about? No. No, Not at all. 
 
 #### About my writing and a quick preface: 
 
+##
+
 I think in Images, and Scenes, Feeling, in Emotion, and Texture, in Rythme... and, maybe even Color... that one is recent, and I can't tell if I'm learning to read it or I'm projecting, it's probably a bit of both - I'm, generally speaking, incredible sensitive. I've been told before that I'm an empath. That was cool. 
 
 If I'm tired and someone tells me something alarming, and then my brain "has" to think about it, it puts the scene in my mind and it can cause viseral reactions, like I'm there or feeling what the person could have felt from what I was told. 
@@ -25,6 +27,8 @@ I felt like... starting here, this way, may be the best way to get a feel for ho
 ##
 
 #### Topics:
+
+##
 
 General Topics will include my Backstory, My Mental Health Issues (Social and General Anxiety Disorders, PTSD, ADHD, Traits of OCD, and a lifetime of Depression that I didn't know existed, My once completely toxic reality lens born from a religiously cult-like toxic dogmatic style of worldview in upbringing/household, world vs us and all that ..., social abuse from my peers and bullies that would then see me isolated from any sort of ...normal socialization, I guess, and, unfortunatly, this was all included with my capability to adjust ... to ... hold on ... to ... "make do" ... until the very edge of what I could handle, and then more ...
 
