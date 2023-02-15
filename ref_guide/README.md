@@ -40,7 +40,7 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 ##
 
-[So, What's Real?](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) 
+[What's Real...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) 
 
 [Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems)
 
