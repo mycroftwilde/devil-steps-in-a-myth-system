@@ -14,7 +14,7 @@ So, if you were to ask is this hard to write or talk about? No. No, Not at all. 
 
 ##
 
-I think in Images, and Scenes, Feeling, in Emotion, and Texture, in Rythme... and, maybe even Color... that one is recent, and I can't tell if I'm learning to read it or I'm projecting, it's probably a bit of both - I'm, generally speaking, incredible sensitive. I've been told before that I'm an empath. That was cool. 
+I think in Images, and Scenes, Feeling, in Emotion, and Texture, in Rythme... and, maybe even in Color... that one is recent, and I can't tell if I'm learning to read it or I'm projecting, it's probably a bit of both - I'm, generally speaking, incredible sensitive. I've been told before that I'm an empath. That was cool. 
 
 If I'm tired and someone tells me something alarming, and then my brain "has" to think about it, it puts the scene in my mind and it can cause viseral reactions, like I'm there or feeling what the person could have felt from what I was told. 
 
