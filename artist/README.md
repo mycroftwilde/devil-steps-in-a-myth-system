@@ -38,7 +38,7 @@ When you fear death more than the depression of life, and living is actually pai
 
 ##
 
-#### Story:
+#### Background:
 
 ** Coming soon **
 
