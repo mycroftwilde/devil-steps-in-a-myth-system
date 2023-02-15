@@ -35,7 +35,7 @@ Try to see how that structure for information is setup.
 
 Now, if YOU had to organize all the information in a library, how would you do it and which pillars would create the backbone for where to put everything? 
 
-
+[Info Structure Page 2](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/infostructure2)
 
 ##
 
