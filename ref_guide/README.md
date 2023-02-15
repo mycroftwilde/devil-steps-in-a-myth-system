@@ -13,7 +13,7 @@ This project is intended to represent this idea - that we must first approach th
 
 ### Caution: 
 
-This idea, or it's approach, could be considered sacraligous to some ... I would urge you to remember the below - if you have any reactions to the things you read. 
+Because this idea, or it's approach, could be considered sacraligous to some I thought it best to include the below by Frank Herbert.... I would urge you to remember the below - if you have any reactions to the things you read. 
 
 “I must not fear. Fear is the mind-killer. Fear is the little-death that brings total obliteration. I will face my fear. I will permit it to pass over me and through me. And when it has gone past I will turn the inner eye to see its path. Where the fear has gone there will be nothing. Only I will remain.” 
 
