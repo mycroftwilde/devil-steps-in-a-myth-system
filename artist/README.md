@@ -20,9 +20,9 @@ If I'm tired and someone tells me something alarming, and then my brain "has" to
 
 I would imagine that may be attention related, along with my sensitivity ... try to concentrate on the road while driving in fog before? something like that. 
 
-I'm articulate and smart, I've spent alot of time thinking and learning, and learning about how to be understood by others, or to get my point accross, but... and this is a BIG "but" ... BUT ... my attention is trash... BAD... unless something grabs it. And, for me, most of the time, the world is Grey. It's boring. I do think that at one point it was probably brighter with wonder, so many things to look into, or understand, the desire to touch my toes into the pools of wonder, but, that's all I had too, and for so many years now it's been more grey than I knew how to say.   
+I'm articulate and smart, I've spent alot of time thinking and learning, and learning about how to be understood by others, or, to get my point accross, but ... and this is a BIG "but" ... BUT ... my attention is trash... BAD-BAD... unless something grabs it. And, for me, most of the time, the world is gray. It's boring. I do think that at one point it was probably brighter with... wonder(?) so many things to look into, or understand, the desire to touch my toes into the pools of possibility, but, that's all I had too, and for so many years now it's been more gray than I knew how to say.   
 
-I felt like... starting here, this way, may be the best way to get a feel for how I describe things before you should read the story of some of the events that helped make me... well, at least from the perseptive of this "current self" of mine. 
+I felt like... starting here, this way, may be the best way to get a feel for how I describe things before you should read the story of some of the events that helped shape me... well, at least from the perseptive of this "current-self" of mine. 
 
 I'm also writing this ...idk, "sudo-live," I guess, as an antiperfectionist exersize for myself. 
 
