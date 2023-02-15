@@ -50,7 +50,7 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 ##
 
-[Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
+[Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
 ##
 
