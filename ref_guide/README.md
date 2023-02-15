@@ -13,7 +13,7 @@ This project is intended to represent this idea - that we must first approach th
 
 ### Caution: 
 
-Because this idea, or it's approach, could be considered sacraligous to some I thought it best to include the below by Frank Herbert.... I would urge you to remember the below - if you have any reactions to the things you read. 
+Because this idea, or it's approach, could be considered sacraligous to some I thought it best to include the below by Frank Herbert.... I would urge you to remember the below if you have any reactions to the things you read because of your religous beliefs. 
 
 “I must not fear. Fear is the mind-killer. Fear is the little-death that brings total obliteration. I will face my fear. I will permit it to pass over me and through me. And when it has gone past I will turn the inner eye to see its path. Where the fear has gone there will be nothing. Only I will remain.” 
 
@@ -25,9 +25,9 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 ### General Approach:
             
- My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place. I don't want to over think it too much, so expect some grammer and spelling issues while it's being put together. I'll re-review once it's complete and correct it. 
+ My approach could be visualized as a sort of "scatter shot" to getting everything I need in one place. I don't want to over think it too much, so, essentially expect some grammer and spelling issues while it's being put together, and half finished thoughts. I'll re-review once it's complete and correct it. 
  
- As well, I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say, to build an image and then express that image, in the best way I can.       
+ As well, I don't consider all of this to be accurate, either, it's ... more of an attempt, let's say, to build an image, and then express that image, in the best way I can.       
 
 ##
 
