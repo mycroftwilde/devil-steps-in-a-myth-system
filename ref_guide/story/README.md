@@ -84,7 +84,7 @@ The Four Steps in totality, look like:
 
 I used to call this "The Equation for Human Catalysm" ... Not that catalysm is a word.. lol 
 
-But, to the point, on the basic layer, in what it is to be Human, and change... which to another point is happening all the time... this is the pattern we should recognize.  This is how we change. How we evolve, step by step...  We have thousands of these little equations running all the time, all at the same time, in our realities... and, for me, personally ... once I tied how humans change to that image and the Four Quadrants... it became easier to make ... choices, I guess? about going "Well, maybe I shouldn't be doing this other change cycle at the same time... I'm still processing, X, Y, and Z, have plans at 4..." etc.. 
+But, to the point, on the basic layer, in what it is to be Human, and change... which to another point, is happening all the time... this is the pattern we should recognize.  This is how we change. How we evolve, step by step...  We have thousands of these little equations running all the time, all at the same time, in our realities... and, for me, personally ... once I tied how humans change to that image and the Four Quadrants... it became easier to make ... choices, I guess? about going "Well, maybe I shouldn't be doing this other change cycle at the same time... I'm still processing, X, Y, and Z, have plans at 4..." etc.. 
 
 Another interesting thing about this... Individual Words... they are personal reality representative, even if we do our best to curb communicationn issues with .... idk, quorom agreement?... anyways, they are EXTREMELY important with the orientation of what something actually "is." 
 
