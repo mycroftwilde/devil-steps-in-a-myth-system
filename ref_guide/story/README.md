@@ -38,6 +38,8 @@ The interesting thing about this, really, is that since we are all in individual
 
 #### Thoughts
 
+What I find interesting about this, or maybe the way my brain took it, was that if we boil things down (and the same sort of idea can be seen in Harmon's version) it comes to Four Main Quadrants, made up of 2 sections overlapping. 
+
 ![1](/art/SSh1.PNG?raw=true "1")
 
 ![2](/art/SSh2.PNG?raw=true "2")
