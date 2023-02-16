@@ -34,6 +34,9 @@ And, then, for the how, it’s about taking the previously mentioned what and ma
 
 Maybe it could be said like - "an emotional philosophy-styled approach to the examination of the structural human, "culture" (or world, if you will), and self."
 
+##
+
+#### Thoughts
 
 Now, if we cross-apply how I have information structure setup: Universe, Human, and World, it would fit right in... it allows us to see WHAT we are trying to express within that set of resonant responses, the ones we are trying to create with things that generally affect human (color and emotion, musical key characteristics, perspective, perfect structure, previously nested resonances for specific groups we are trying to cause a response with, etc) overlapped with our expression.   
 
