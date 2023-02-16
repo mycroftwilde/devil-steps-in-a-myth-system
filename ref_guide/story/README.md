@@ -8,7 +8,9 @@ Here is an idea:
 
 1. Take all the stories in the world
 
-2. Figure out a way to represent all the different types of structure, what we are talking about, essentially, and anything else we can quantify. (there would be a ton, I'm just lazy right now... lol) 
+2. Figure out a way to represent all the different types of structure, what we are talking about, essentially, and anything else we can quantify. 
+
+     (there would be a ton, I'm just lazy right now... lol) 
 
 3. Put all those figures in a table.... think excel. Each columb represents a different book, and each row are all the different quantified variables. 
 
