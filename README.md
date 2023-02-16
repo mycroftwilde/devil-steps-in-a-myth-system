@@ -8,6 +8,6 @@ My brain doesn't think linerally, also, in another sense it thinks hyper-linearl
 
 Anyways, here it is... 
 
--M
+- M
 
 ![BannerLogoMid](/art/MW.png?raw=true "BannerMid")
