@@ -50,7 +50,7 @@ On the bottom half we have the Unknown - or the Unknown World
 On the Right Side, we have the Old Us 
 On the Left Side, we have the New Us
 
-![3](/art/SSh3.PNG?raw=true "3")
+![3](/art/SSh3.JPG?raw=true "3")
 
 ![4](/art/SSh4.PNG?raw=true "4")
 
