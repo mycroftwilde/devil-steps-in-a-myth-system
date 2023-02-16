@@ -10,6 +10,10 @@
 
 [Dan Harmon Story Circle/Structure - More into the Weeds Now...](https://channel101.fandom.com/wiki/Story_Structure_102:_Pure,_Boring_Theory)
 
+[Dan Harmon Story Circle/Structure - It Builds...](https://channel101.fandom.com/wiki/Story_Structure_103:_Let%27s_Simplify_Before_Moving_On)
+
+[Dan Harmon Story Circle/Structure - and, Builds...](https://channel101.fandom.com/wiki/Story_Structure_104:_The_Juicy_Details)
+
 ##
 
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
