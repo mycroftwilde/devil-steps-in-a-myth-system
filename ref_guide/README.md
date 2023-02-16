@@ -42,24 +42,24 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
 
-[Let's Define HOW we should see Reality...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (Coming Soon)
+[Let's Define HOW we should see Reality...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (** Coming Soon **)
 
-[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems) (Coming Soon)
+[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems) (** Coming Soon **)
 
 
-[OUR individual push and pull with the Quorum and](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya) (Coming Soon)
+[OUR individual push and pull with the Quorum and](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya) (** Coming Soon **)
 
 ##
 
 [Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
-[Definition for Art Rap]() (Coming Soon)
+[Definition for Art Rap]() (** Coming Soon **)
 
 ##
 
 #### Perception Variables
 
-[Physical Health and our Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth) (Coming Soon)
+[Physical Health and our Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth) (** Coming Soon **)
 
 ##
 
@@ -79,7 +79,7 @@ This should also give you a better understanding of seeing another persons syste
 
 (I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art ... it may, however, diminish the ego of the artist who isn't prepared, or, maybe, doesn't really know what they are saying ... )
 
-[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/artist) (More Coming Soon)
+[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/artist) (** More Coming Soon **)
 
 ##
 
