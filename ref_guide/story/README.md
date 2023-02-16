@@ -70,6 +70,16 @@ And, Finally, on to Step 4
 
 ![7](/art/SSh7.PNG?raw=true "7")
 
+The Four Steps in totality, look like: 
+
+1. Old Us - In the Known World 
+
+2. Old Us - in the Unknown World 
+
+3. New Us - in the Unknown World 
+
+4. New Us - In the Known World 
+
 ##
 
 
