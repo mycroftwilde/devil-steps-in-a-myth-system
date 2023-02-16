@@ -49,13 +49,7 @@ Universe <-> Human <-> World
 Ths allows us to see WHAT we are trying to express within that set of resonant responses, the ones we are trying to create with things that generally affect human (color and emotion, musical key characteristics, perspective, perfect structure, previously nested resonances for specific groups we are trying to cause a response with, etc) overlapped with our expression.   
 
 
-
-Messages from individual realities to other individual realities, to the quorum, perhaps, with all the tools we have to communicate to other humans ...  
-
-
-
-Messages in a bottle ... one reality to another, all in a waveform ocean of competing intention-weighted probability fields climbing over each other, all affecting each other, but, we, the artists ... sill hope to... change what we see, or, maybe ... to be heard, as unlikely as it is...? 
-
+Messages in a bottle, perhaps... one individual weighted reality to all the others, all in this endless waveform ocean of competing individual reality intention-weighted probability fields ... all climbing over each other, but, we ... the ones who call ourselves artists ... we sill hope ... and still hope to change what we see, or, maybe, to... be heard, as unlikely as we feel it is,...I mean, if it's gotten this far, right?
 
 
 ##
