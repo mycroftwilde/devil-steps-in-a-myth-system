@@ -40,13 +40,14 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 ##
 
-[What's "Real"...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) 
+[Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
+
+[Let's Define HOW we should see Reality...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) 
 
 [Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems)
 
-[Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
 
-[OUR Affect on the Quorum and Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya)
+[OUR individual push and pull with the Quorum and](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya)
 
 ##
 
@@ -56,13 +57,13 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 #### Perception Variables
 
-[Our Physical Health and it's affect on our Personal Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth)
+[Physical Health and our Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth)
 
 ##
 
 #### The Project: Devil Steps in a Myth System 
 
-[A Dueling Artists Dueling Art Display within a Dueling Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
+[A "Shit, Test me!" Arrested Development Style Tale of a Dueling Artist's Dueling Art, All Displayed within the Ultimate Realm of a Dueling Art, And, all THIS ... So He Can finally Go back to School, and School his Old Duels with Art ... So, Let's Talk about Rythmically Reading Poetry in my Best Tough Guy Voice ... and other interesting things ...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
 
 ##
 
