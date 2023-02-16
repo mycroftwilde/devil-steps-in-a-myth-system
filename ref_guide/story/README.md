@@ -49,11 +49,13 @@ The interesting thing about this, really, is that since we are all in individual
 #### Resources
 
 
-Hero's Journey
+##### Hero's Journey
 
 [Hero's Journey Wiki](https://en.wikipedia.org/wiki/Hero%27s_journey)
 
-Dan Harmon Story Circle
+
+
+##### Dan Harmon Story Circle
 
 [Dan Harmon Story Circle/Structure - Base](https://channel101.fandom.com/wiki/Story_Structure_101:_Super_Basic_Shit)
 
@@ -62,6 +64,8 @@ Dan Harmon Story Circle
 [Dan Harmon Story Circle/Structure - It Builds...](https://channel101.fandom.com/wiki/Story_Structure_103:_Let%27s_Simplify_Before_Moving_On)
 
 [Dan Harmon Story Circle/Structure - and, Builds...](https://channel101.fandom.com/wiki/Story_Structure_104:_The_Juicy_Details)
+
+
 
 ##
 
