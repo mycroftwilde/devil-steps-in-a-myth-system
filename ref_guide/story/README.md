@@ -40,17 +40,17 @@ The interesting thing about this, really, is that since we are all in individual
 
 ![1](/art/SSh1.PNG?raw=true "1")
 
-![2](/art/SSh2.png?raw=true "2")
+![2](/art/SSh2.PNG?raw=true "2")
 
-![3](/art/SSh3.png?raw=true "3")
+![3](/art/SSh3.PNG?raw=true "3")
 
-![4](/art/SSh4.png?raw=true "4")
+![4](/art/SSh4.PNG?raw=true "4")
 
-![5](/art/SSh5.png?raw=true "5")
+![5](/art/SSh5.PNG?raw=true "5")
 
-![6](/art/SSh6.png?raw=true "6")
+![6](/art/SSh6.PNG?raw=true "6")
 
-![7](/art/SSh7.png?raw=true "7")
+![7](/art/SSh7.PNG?raw=true "7")
 
 ##
 
