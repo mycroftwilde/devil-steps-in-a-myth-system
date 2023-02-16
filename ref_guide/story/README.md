@@ -38,7 +38,7 @@ The interesting thing about this, really, is that since we are all in individual
 
 #### Thoughts
 
-![1](/art/SSh1.png?raw=true "1")
+![1](/art/SSh1.PNG?raw=true "1")
 
 ![2](/art/SSh2.png?raw=true "2")
 
