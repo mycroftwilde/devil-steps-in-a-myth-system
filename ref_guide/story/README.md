@@ -88,10 +88,20 @@ But, to the point, on the basic layer, in what it is to be Human, and change... 
 
 Another interesting thing about this... Individual Words... they are personal reality representative, even if we do our best to curb communicationn issues with .... idk, quorum agreement?... anyways, they are EXTREMELY important with the orientation of what something actually "is."
 
-Here is an idea I came up with... 2 days ago? something like that, just playing around with what I knew and how I viewed change, psychology, and how I MAY represent this now to myself in a different way
+Here is an idea I came up with... 2 days ago? something like that, just playing around with what I knew and how I viewed change, psychology, etc... 
+
+
 
 ![StoryCVar](/art/StoryCVar.png?raw=true "StoryCVar")
 
+I may refine it in the future, as it includes, specifically, an element I think is important: Internalization. 
+
+After we change, return "Home," or, return the "Known" world, we see the Known world differently since WE are different, then so too is our view of the "Old World" compared to our previous selves ... And, as with any information, it takes us time to integrate it. 
+
+I like to think of that, at least in this context as 
+
+-> When we return back, changed, we start "Equalizing" -> then, after we hit a point, the Line inidcated above... we have "internalized" the change, and the "New-Old-Home" is just -> "Home"... and this could be represeted as "Equalized"  
+ 
 ##
 
 
