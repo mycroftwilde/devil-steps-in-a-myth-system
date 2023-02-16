@@ -54,11 +54,19 @@ On the Left Side, we have the New Us
 
 ![3](/art/SSh3.JPG?raw=true "3")
 
+We start on this Step, Step 1
+
 ![4](/art/SSh4.PNG?raw=true "4")
+
+We move to this Step, Step 2 
 
 ![5](/art/SSh5.PNG?raw=true "5")
 
+Then on to this Step, Step 3
+
 ![6](/art/SSh6.PNG?raw=true "6")
+
+And, Finally, on to Step 4
 
 ![7](/art/SSh7.PNG?raw=true "7")
 
