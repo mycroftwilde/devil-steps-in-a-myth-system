@@ -42,7 +42,13 @@ What I find interesting about this, or maybe the way my brain took it, was that 
 
 ![1](/art/SSh1.PNG?raw=true "1")
 
+On the top half we have the Known - or the Known World
+On the bottom half we have the Unknown - or the Unknown World 
+
 ![2](/art/SSh2.PNG?raw=true "2")
+
+On the Right Side, we have the Old Us 
+On the Left Side, we have the New Us
 
 ![3](/art/SSh3.PNG?raw=true "3")
 
