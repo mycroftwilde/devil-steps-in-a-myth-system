@@ -42,28 +42,30 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
 
-[Let's Define HOW we should see Reality...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) 
+[Let's Define HOW we should see Reality...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (Coming Soon)
 
-[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems)
+[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems) (Coming Soon)
 
 
-[OUR individual push and pull with the Quorum and](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya)
+[OUR individual push and pull with the Quorum and](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya) (Coming Soon)
 
 ##
 
 [Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
+[Definition for Art Rap]() (Coming Soon)
+
 ##
 
 #### Perception Variables
 
-[Physical Health and our Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth)
+[Physical Health and our Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth) (Coming Soon)
 
 ##
 
 #### The Project: Devil Steps in a Myth System 
 
-[A "Shit, Test Me!" Arrested Development Style Tale of a Dueling Artist's Dueling Art, All Displayed Within the Ultimate Realm of a Dueling Art, And, All of This ... So He Can finally Go Back, In Time, and School His Old Duels with Art ... And, So Now, I Guess We Should All Talk About Me Rythmically Reading Poetry in my Best Tough Guy Voice ... And, Other Interesting Things ...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
+[A "Shit, Test Me!" Arrested Development Style Tale of a Dueling Artist's Dueling Art, All Displayed Within the Ultimate Realm of a Dueling Art, And, All of This ... So He Can finally Go Back, In Time, and School His Old Duels with Art ... And, So Now, I Guess We Should All Talk About Me Rythmically Reading Poetry in my Best Tough Guy Voice ... And, Other Interesting Things ...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method) (More Coming Soon)
 
 *Reading Poetry in a Tough Guy Voice* Credit for that absolute Gem of a statement goes to another. I'll leave this here for now, and if they wish direct credit then I will add it immediatly - Privacy and Reality Respect ;) 
 
@@ -77,7 +79,7 @@ This should also give you a better understanding of seeing another persons syste
 
 (I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art ... it may, however, diminish the ego of the artist who isn't prepared, or, maybe, doesn't really know what they are saying ... )
 
-[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/artist)
+[About the Artist](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/artist) (More Coming Soon)
 
 ##
 
