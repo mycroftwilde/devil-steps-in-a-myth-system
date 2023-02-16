@@ -63,7 +63,7 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 #### The Project: Devil Steps in a Myth System 
 
-[A "Shit, Test me!" Arrested Development Style Tale of a Dueling Artist's Dueling Art, All Displayed within the Ultimate Realm of a Dueling Art, And, All this ... So He Can finally Go back to School, and School his Old Duels with Art ... So, I Guess, We Should Talk about Rythmically Reading Poetry in my Best Tough Guy Voice ... and other Interesting Things ...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
+[A "Shit, Test me!" Arrested Development Style Tale of a Dueling Artist's Dueling Art, All Displayed within the Ultimate Realm of a Dueling Art, And, All this ... So He Can finally Go back to School, and School his Old Duels with Art ... And, So Now, I Guess We Should Talk about Rythmically Reading Poetry in my Best Tough Guy Voice ... And, Other Interesting Things ...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
 
 ##
 
