@@ -67,7 +67,7 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [A "Shit, Test Me!" Arrested Development Style Tale of a Dueling Artist's Dueling Art, All Displayed Within the Ultimate Realm of a Dueling Art, And, All of This ... So He Can finally Go Back, In Time, and School His Old Duels with Art ... And, So Now, I Guess We Should All Talk About Me Rythmically Reading Poetry in my Best Tough Guy Voice ... And, Other Interesting Things ...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method) (** More Coming Soon **)
 
-*Reading Poetry in a Tough Guy Voice* Credit for that absolute Gem of a statement goes to another. I'll leave this here for now, and if they wish direct credit then I will add it immediatly - Privacy and Reality Respect ;) 
+*Poetry in in thier best Tough Guy Voice* Credit for that absolute Gem of a statement goes to another. I'll leave this here for now, and if they wish direct credit then I will add it immediatly - Privacy and Reality Respect ;) 
 
 ##
 
