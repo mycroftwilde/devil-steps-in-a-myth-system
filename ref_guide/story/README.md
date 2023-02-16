@@ -28,10 +28,11 @@ Here is an idea:
 
 The above, is a quick way to look at meta story. 
 
-The Heroes journey had done this, roughly speaking, with Myths, Mythology, Legends, Origin Stories, etc... 
+The Hero's Journey has done this, roughly speaking, with Myths, Mythology, Legends, Origin Stories, etc... 
 
-The general idea is this: if we boil everything down, WHAT are we expressing, all of us, even wthout knowing it? What's underlaying structure? 
+The general idea is this: if we boil everything down, WHAT are we expressing, all of us, even wthout knowing it? What's the underlaying structure of the human story? 
 
+The interesting thing about this, really, is that since we are all in individual realities, using expression to communicate, or, to touch on other realities ... what would this say about what reality itself is, when we boil down these ... outward expresssions to other realities, the REAL parts of ourselves? 
 
 ##
 
