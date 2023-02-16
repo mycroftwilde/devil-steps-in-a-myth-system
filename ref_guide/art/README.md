@@ -28,9 +28,9 @@ I think it’s really about displaying ourselves, or, our reality, and I feel it
   
 Within the display of ourselves, there is the WHAT we are displaying and HOW we are displaying it. 
 
-So, for the what, I think it’s a combination of … the structural human species elements, the age or the environments, and then our unique lens. 
+So, for the WHAT, I think it’s a combination of … the structural human species elements, the age or the environments, and then our unique lens. 
 
-And, then, for the how, it’s about taking the previously mentioned what and making something that resonates with us and, hopefully, any potential audience.
+And, then, for the HOW, it’s about taking the previously mentioned what and making something that resonates with us and, hopefully, any potential audience.
 
 Maybe it could be said like - "an emotional philosophy-styled approach to the examination of the structural human, "culture" (or world, if you will), and self."
 
@@ -38,11 +38,25 @@ Maybe it could be said like - "an emotional philosophy-styled approach to the ex
 
 #### Thoughts
 
-Now, if we cross-apply how I have information structure setup: Universe, Human, and World, it would fit right in... it allows us to see WHAT we are trying to express within that set of resonant responses, the ones we are trying to create with things that generally affect human (color and emotion, musical key characteristics, perspective, perfect structure, previously nested resonances for specific groups we are trying to cause a response with, etc) overlapped with our expression.   
+Now, if we cross-apply how I have information structure setup: 
+
+Universe -> Human -> World 
+
+or 
+
+Universe <-> Human <-> World
+
+Ths allows us to see WHAT we are trying to express within that set of resonant responses, the ones we are trying to create with things that generally affect human (color and emotion, musical key characteristics, perspective, perfect structure, previously nested resonances for specific groups we are trying to cause a response with, etc) overlapped with our expression.   
+
+
 
 Messages from individual realities to other individual realities, to the quorum, perhaps, with all the tools we have to communicate to other humans ...  
 
+
+
 Messages in a bottle ... one reality to another, all in a waveform ocean of competing intention-weighted probability fields climbing over each other, all affecting each other, but, we, the artists ... sill hope to... change what we see, or, maybe ... to be heard, as unlikely as it is...? 
+
+
 
 ##
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
