@@ -104,6 +104,14 @@ I like to think of that, at least in this context as
  
 ##
 
+#### So, all in all...
+
+I think it's important that we all understand, on an individual level, what we know about what the Quorom has told us about change, and how we can define it... It's sort of like learning... we are all "taught" ... well, some of us, anyway... but, I'm not sure we ever were taught how to learn... or, we weren't taugh that first... how things change within us, what it feels like, how we grow and what it feels like to hit walls and overcome them... so when we hit any other walls... it's just... there? easy peasy? something like that...
+
+The reason for this inclusion, to wrap this up, is ... this is how we change... , in the same sense, as we need to learn to how learn first, before being taught... then I think this often should come before alot of things. 
+
+
+##
 
 #### Resources
 
