@@ -42,12 +42,7 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
 
-[Let's Define HOW we should see Reality...](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (** Coming Soon **)
-
-[Myth Systems and the Quorum](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems) (** Coming Soon **)
-
-
-[OUR individual push and pull with the Quorum and](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realitya) (** Coming Soon **)
+[Let's Define HOW we should see Reality...Myth Systems and Quorum Real](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (** Coming Soon **)
 
 ##
 
