@@ -60,7 +60,8 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 #### The Project: Devil Steps in a Myth System 
 
-[General Method Concept](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method) (** More Coming Soon **)
+[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/dsinms)
+[Format](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method) (** More Coming Soon **)
 
 ##
 
