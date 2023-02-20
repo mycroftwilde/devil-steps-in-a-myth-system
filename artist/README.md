@@ -48,18 +48,29 @@ So ... may as well start at the beginning... *gets dusty book down from the top 
 hahaha
 So I grew up in a .. self idenfied "christian" household ... roughly thinking, you can use baptist or weaslian in your head, it's analogous enough.
 The house I grew up in has/had this ... us vs them mentality in worldview. There is the "them" and there is the "saved." This was initially how Reality was divided up for me. 
+
 The purpose of reality is being "saved." Everything else comes after that, it's the "mission" in life, in a sense. Not in a militant sense, well, I suppose depending on your definition, but in a more "loving" sense, but, it was unfortunatly toxically so... 
+
 This is gonna build from alot of stuff that's probably gonna seem dissperse but seems relevant in the build of the image, since it all ties together
-Growing up.. my dad met my mom when he was ... 34? I think, she was 19-20, they have a 15 year difference, was at a music event or something for the church. Mom was enamored and pursed the shy AF and also with social trauma, dad.
+Growing up.. my dad met my mom when he was ... 34? I think, she was 19-20, they have a 15 year difference, was at a music event or something for the church. 
+
+Mom was enamored and pursed the shy AF and also with social trauma, dad.
+
 I think they had me, I'd say when dad was near 40, I wanna say? something like that
+
 So, they have me and my brother, who is 2 years younger.
+
 Alot of my ptsd comes back to social trauma, and the Fawning response built from other social ptsd I had in trauma.  Like one trauma on other. 
-A Rough Definition for Fawning responses is this: 
+
+
+  - A Rough Definition for Fawning responses is this: 
 "Fawning is a trauma response where a person develops people-pleasing behaviors to avoid conflict and to establish a sense of safety. In other words, the fawn trauma response is a type of coping mechanism that survivors of complex trauma adopt to "appease" their abusers."1
+
 So, the stuff from childhood is like this -
+
 We were put into a small private "Christian" "School" of about 30 people. (Quotes seperate on purpose...) up until about grade 3, that wasn't great from a socialization perspective, but, it became worse, with the overarching view of reality being given and without a grounding so far, but we swapped to public school in grade 4
-About half way thru grade 4 I became like.. you see all those kids who are bullied in school?
-from the movies
+
+About half way thru grade 4 I became like.. you see all those kids who are bullied in school from the movies...
 
 
 ** Coming soon **
