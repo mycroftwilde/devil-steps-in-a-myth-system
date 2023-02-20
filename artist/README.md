@@ -72,6 +72,37 @@ We were put into a small private "Christian" "School" of about 30 people. (Quote
 
 About half way thru grade 4 I became like.. you see all those kids who are bullied in school from the movies...
 
+I had it worse...
+
+it was bad, bad... 
+
+I often don't think about it but think about an entire social level, being kids my age, deciding I was .... lowest rung, almost always?
+
+I was made of for ...being tall (? lmfao) for reacting to being emotionally hurt, for being physically hurt, for my last name (prins, being turned into princess to mock me with)
+
+At recess I used to have to  follow the teachers, or keep them in eyeline (Remember, this happened for YEARS...)
+
+Otherwise it would be potentially dangerous, I could get beat up or hurt
+
+We lived close to the school, so we walked... Some of the bully kids did too, well, hell, alot of them did... 
+
+It meant leaving my house or being ... out and about, thinking back now, felt dangerous, I think, always watching, having to be careful, always nervous... 
+
+This was grade 4 - 8, the end of elementry school,  until I hit highschool in grade 9 ...  it was ... horrible
+
+I also .. almost died in grade 4. 
+
+They had this "hotdog" day. Teachers back then walked the hallways and checked on classrooms.
+
+I choked... a bully of mine, a friend from before things shifted, saved my life by doing the hemlick ... which he learned from baywatch, of all things... that must have been complicated to feel. A bully literally saving my life, my parents view of what reality was, almost touching "death" so early and their nonsense and toxic beliefs... 
+
+There was another time... peggys cove... I went too close to the edge, slipped. I can't remember how young. I Held onto the edge until my dad was able to get me
+
+There was almost dying of croup when I was a kid due to being alergic to penecilin. 
+
+I felt afraid of my dad dying, because he was older.. his dad - my grandfather,... died on my fathers 17th birthday in his 50s
+
+
 
 ** Coming soon **
 
