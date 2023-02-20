@@ -304,13 +304,7 @@ parent's who would take me to a paster instead of MH professional during a fit o
 
 I'm sure I'm forgetting a fuuuuuuuuuck tone of stuff, but thems the bullet points? 
 
-I'll add more later
-
-
-
-
-
-** Coming soon **
+I'll add more later... maybe
 
 
 ##
