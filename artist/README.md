@@ -306,6 +306,33 @@ I'm sure I'm forgetting a fuuuuuuuuuck tone of stuff, but thems the bullet point
 
 I'll add more later... maybe
 
+##
+
+Well, here is more, I guess. I've spent the day just ... crying.  I prepared the above, went over it, after copying from where I wrote it the first time and it just snapped me. I'm out of weed, and that doesn't help either... provincial holiday for us, so all the stores are closed. I've spent my life, almost all of it, truely alone. I'm alone again now. I don't know if I can survive long like this. I wasn't trained like others were... I don't see self-value, I can't live for myself, resonante with myself. I don't have positive emotion tied to who I am. I don't understand it like others do. Yet, I feel almost everything in high definition, like others don't. 
+
+Alot of my life I've had this image of hell... this black hole without form, that just continues inward. I've been terified to die, because of the things religion taught me. I've never really wanted to ... live tho, in a sense? I snapped away happy moments for myself, and that's when I'm ... well, the closet to the version of me I used to be able to pull out, but that one wasn't really all the way me either... and I fight through life because either I thought I was supposed to, I was trained too, or there wasn't really another option, not even death. 
+
+I've killed off my belief in religion, obviously, it's toxic, and, frankly, evil. It's short cut thinking and it's nonsense if not qualified that way. 
+
+Now it seems that because I've killed off my belief in religion, and I mean REALLLLLLY ended my belief in it, there isn't anything else ... holding me here? 
+
+When you ask for help, when you are honest about it, when you find every possible way to explain these issues, and you see the response your friends and family, who've known you for years, give you... and they were the only things you even held on for... it says in moments, that all the years, all the pain I still can resonante with, because it's in my memory, ... it says that was worthless, my "battle" didn't mean anything...I was used to fit the expectation of everyoe else and no one... valued me for me, they just tried to make me what they wanted and just fucked me up... all the time I heald pain didn't mean anything. When you email your family and are frustrated by religion and say things you've never said before in relation to your own pain and the FIRST line of the response references the blow to the person themselves and how I view religion, instead of the pain...that email was months ago and I still can't get it out of my mind. You'll see your value in a second if you get an email like that. 
+
+My entire life's pain is nothing more than a trauma response that I was stuck in from childhood and it was used by all of those around me. 
+
+I often wonder if anyone has ever seen the real me. I've spent, literally, the majority of my life truely alone and I'm not ... I'm not capable of doing it anymore.  
+
+There is a large difference in how much you care about someone, even on the basic human level, and what the behavior says. There is alot that has shown me... I wasn't ever loved, or CARED for...for WHO I WAS... and people treated me like a bull in a china shop, worrying about my effect on ... idk, the bullies, or life... I never really faught back. This writing exersize is still me trying to explain my pain, so when I say the shit I'm going to say... it's qualified. Maybe that's a bit of a problem, yeah? Maybe I should just say FUCK it, and speak...? maybe I should give up? Maybe I should just pick a spot, lay down, and wait until I'm nothing? 
+
+It was good to get that out of my system. I can't hold back anymore - if I try it hurts... but it's always hurt.. I'm just able to notice it now and say "no more."
+
+
+Maybe I'll finish the write up... maybe I won't... all part of the process in figuring that out, I guess. 
+
+Either way this project is all I have left in life and I'm struggling to come up with an answer for ... wanting to continue after it's completed. I think that's fucking with me too. What is there after this? I lost everything that mattered, cause it never really mattered, but I was trained to believe it was. 
+
+I guess, we'll find out soon enough. 
 
 ##
+
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
