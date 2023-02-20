@@ -214,7 +214,99 @@ all I had to do was call my boss and ask a quick question, or even a co-worker
 
 but all the shit was setup so badly that it was ... fucked when I was tired. And, being told almost by that fawning response, or my own trauma, when I could sleep
 
+when I couldn't function already without sleep...10 years of that shit, over and over again, being gaslit and the cycle continuing... 
+
+
+a friend of mine was like "there is this girl you gotta meet"
+
+was my wife, I flew out, I moved up a month later
+
+now this company I worked for
+
+that when I stopped working I had been working at for one month shy of 10 years
+
+I had been on this on-call rotation
+
+this job sort of by it's absense in actual management, allowed me to not prioritize myself and I drove myself into the group. People hung jobs in front of me
+
+to get me to ... encourage me to continue the work and level of shit I'd do
+
+when I was in north bay, which was about 2 years... I was essentially alone. they never had offsite staff in my department before. They have a main office in London and North bay was a satalite office. So I was left to sort of "speak for myself" because management was non existant... except it wasn't
+
+my boss at the time I think I looked up to because of the fawning response, or that is the say, the priortization in what I would here would be weighted different in my perception. 
+
+he never did his job, I did so much of it over the years. I wasn't help, and the only thing I knew how to do was keep working to trying to make it better
+
+it got worse and worse
+
+I remember some weeks, while being on-call ... barely sleeping and then the phone would ring again... just wanting to sleep so badly... feeling so alone... I remember being told the entirty of the team I worked with in london came in late and left early, while I probably stayed late and never left early, or would get anxiety because I was walking this invisible "line" that didn't exist beside in my head
+
+got to the point where I was doing like... 75% of the work in the main area of our group... 
+
+no actual management and me just going further and further and further into what I had seen from childhood
+
+not being seen, being disregarded, trying to handle things the way I knew how
+
+I got a job eventually at a higher position within the same company and the guy I had been close with, the other person in the group I moved into, changed completely...it was all fucked... the boss at the time knew shit was going on, didn't know how to deal with conflict, how to really resolve or help things or even just go "let's get on a call and talk this out, cause WTF is happening, Guy, stop being a fucking child" ... the other guys excuse was "I'm not a teacher" ... and it's like "yeah, but you aren't a co-worker either, I guess? or, how about all the years I did extra work for you because we were both frustrated by ineptitude?"... and I was the most known quanitity to ever hit that group. I had to pull shit apart and figure some things out. Didn't know I had adhd at the time, and was too ... alone. I couldn't orient, I guess. That job change happend right before covid hit
+
+I also didn't know then that I was a ... visual person? There was no way to bring me to london while covid was happening to even show me what the server room looked like. I was working from abstractions and information. The ... job change was like "here is the old guys notes, go read that"
+
+that on-call rotation changed from one week at a time, 24 hours a day, all 7 days of the week , every 4-5 weeks, depending upon how many staff we had, to every 2 weeks
+
+I remember getting a call once, and my brain flodded, exhausted, I didn't have the info I needed to orient and just howled in tears "I don't know what to do!"
+
+all I had to do was call my boss and ask a quick question, or even a co-worker
+
+but all the shit was setup so badly that it was ... fucked when I was tired. And, being told almost by that fawning response, or my own trauma, when I could sleep
+
 when I couldn't function already without sleep...
+
+on top of that
+
+And to keep in mind, my Ex-Wife and I are still friends and live together, but this needs to be talked about too. We are working on healing, but to disregard this is ... wrong, in the grand scope of what I'm trying to do now. 
+
+My Ex-Wife and I slepy in the same room, but seperate beds, pushed together .. I wanted to sleep in the same bed... she always used the reason of "how expense her matress is and how she needs to be tucked in a certain way" to quote her reasons. 
+
+so, when I was bigger than I am now,  I was diagosed with sleep apnea and was stressed and messed all the time, and couldn't think thru using the machine before sleep alot
+
+My Ex-Wife would hit me sometimes, push me, whatever it took to wake me up, if I was snoring
+
+so I could move to the couch
+
+that ... on a long enough timeline with all the sleeping issues... she never moved to the couch once herself. She eventually, or we both did, subconciously adjusted in little ways, but I was the one moving to change myself again.
+
+I felt isolated
+
+like I was being pushed and shoved down, and I "just wanted her to do that once so I felt supported" or something like that
+then my larger cat, who we got to help with depression - dexter. He wasn't socialized properly and we didn't know enough when we first got him... so he's dude cat agressive sometimes, likes to play. He's also 30 pounds and moves like a tiger. He makes this sound that's so... hash... when he wants attention. I work from home and didn't have anywhere else to go
+
+He cut has back leg open a few months after getting him and that sound was the thing that made me come running when it happened. He's done it ever since and it hurts me viserally, to hear it. 
+ 
+then add on the sex issues with my Ex-Wife, or lack of sex, and the need I have.. . like as near as far as I can tell, unless I'm regularly having sex... I'm gonna have panic attacks because of either my drive or lack of it being addressed properly, so my system always has the problem on the go
+
+after a couple of years in the higher position, or maybe it was 2? or 1.2? I was having these events where
+
+if I "looked" in a certain part in my brain, or memory, it would just overwhelm me with dread and I'd grab at my chest and I knew it would pass, and I just needed to get past that moment. It was like looking into hell itself, on top of everything else. 
+
+I had been off work before with anxiety and had therapy with my psycologist intermitantly for a while, but I knew I couldn't continue I was always anxious, scared, couldn't ... hold my brain back anymore from terror, absolute, and I mean Absolute Dread ....and pain ... no one was helping... they sorta ... like some people have gotten better about it... but it's like picking yourself up from being dead and watching people just sit and watching you do it yourself... and it's hard because of that
+
+the adhd find was a bit after going on leave,
+
+but the ptsd has sorta been lifelong, as far as I can tell, I've never had a normal life in that way
+
+I remember a friend of mine from back then, one of the only other people who had my back at times (and other times not, he was a kid too, after all, I don't hold ill will  - he's a really good dude and checks on me) told me "you were a hero for not coming in with a gun, it was that bad"
+
+and him saying that was when I went "fuck, really?" and finally realized it wasn't...normal. 
+
+I never dealt with anyof it because I didn't know how, couldn't orient in a world that didn't exist, and adhd segregated everything and allowed me to go "oh, a game" or "oh, this thing!"
+
+parent's who would take me to a paster instead of MH professional during a fit of despair and depression, or who got stuck in their own beliefs, that if it doesn't fit that check mark in their head then it's autmatically wrong... 
+
+I'm sure I'm forgetting a fuuuuuuuuuck tone of stuff, but thems the bullet points? 
+
+I'll add more later
+
+
 
 
 
