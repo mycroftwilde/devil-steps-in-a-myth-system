@@ -42,27 +42,21 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
 
-[Let's Define HOW we should see Reality...Myth Systems and Quorum Real](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (** Coming Soon **)
+[Perception, Reality, and Myth Systems](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (** Coming Tomorrow **)
 
 ##
 
 [Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
-[Definition for Art Rap]() (** Coming Soon **)
+[Definition for Art Rap]() (** Coming Tomorrow **)
 
 ##
 
-#### Perception Variables
+#### The Project Details: Devil Steps in a Myth System 
 
-[Physical Health and our Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/realityhealth) (** Coming Soon **)
+[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/dsinms) (** Coming Tomorrow **)
 
-##
-
-#### The Project: Devil Steps in a Myth System 
-
-[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/dsinms) (** Coming Soon **)
-
-[Format](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method) (** More Coming Soon **)
+[Format](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
 
 ##
 
