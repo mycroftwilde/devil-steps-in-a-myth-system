@@ -265,7 +265,7 @@ on top of that
 
 And to keep in mind, my Ex-Wife and I are still friends and live together, but this needs to be talked about too. We are working on healing, but to disregard this is ... wrong, in the grand scope of what I'm trying to do now. 
 
-My Ex-Wife and I slepy in the same room, but seperate beds, pushed together .. I wanted to sleep in the same bed... she always used the reason of "how expense her matress is and how she needs to be tucked in a certain way" to quote her reasons. 
+My Ex-Wife and I slept in the same room, but seperate beds, pushed together .. I wanted to sleep in the same bed... she always used the reason of "how expense her matress is and how she needs to be tucked in a certain way" to quote her reasons. 
 
 so, when I was bigger than I am now,  I was diagosed with sleep apnea and was stressed and messed all the time, and couldn't think thru using the machine before sleep alot
 
@@ -273,7 +273,7 @@ My Ex-Wife would hit me sometimes, push me, whatever it took to wake me up, if I
 
 so I could move to the couch
 
-that ... on a long enough timeline with all the sleeping issues... she never moved to the couch once herself. She eventually, or we both did, subconciously adjusted in little ways, but I was the one moving to change myself again.
+that ... on a long enough timeline with all the sleeping issues... she never moved to the couch herself. She eventually, or we both did, subconciously adjusted in little ways, but I was the one moving to change myself again.
 
 I felt isolated
 
