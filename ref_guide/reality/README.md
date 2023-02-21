@@ -1,4 +1,4 @@
-### Reality
+### Myth Systems, our Lens, and Individual Reality Experience
 ##
 
 This section is a fun one for me. 
