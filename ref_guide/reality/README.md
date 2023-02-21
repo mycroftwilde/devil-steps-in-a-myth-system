@@ -47,6 +47,19 @@ That may also help you understand this part of the idea a bit more. If we unders
 
 Then it's the individual "tastes" that would be assigned after that. 
 
+Now, here is another few ways we can look at the way that we agree on reality together ... let's start with language
+
+We assign values of meaning to words so that we can recall what something is, representionally, quickly, communicate it more easily,and maybe so we can abstract or think around things in our internal worlds more efficiantly.
+
+Now, let's try to think of the meaning behind one of these assigned values
+
+We will use a single world to not even add extra movement or ways to think about meaning. Just a single word and you think of the represention behind it. 
+
+Let's try this... here we go: 
+
+"Book."
+
+This is the interesting part to me... not a single person, just on the frame of a single common Noun like that, what resonante the same way. If you thought of a book itself, or pulled up the image of a specific book...  the color of cover, the smell of pages, the size of the book, if it had creases, had a specific emotional value or extra meaning to you personally, if it was a general looking book, with the same general questions as the specific book... if the word itself was thought of, and not really an image, but just knowing what it was and it resonanting in a personally representive way that may be hard to articulate to another indivudual. Someone may have pulled up something like a dictionary definition. 
 
 
 
