@@ -298,11 +298,15 @@ I think I feel more ... alive, or, maybe tuned in today. I got back from the 4.2
 
 I just looked up while writing this and realized I needed to take my anti depressant. I just took it. 
 
-This project ... it's life threateningly dangerous for my mental state to process, without support, or without my needs met, without someone to really hold their arm under mine. That's not any different than it normally is, but I am akwnoledging that to myself now ... there is a very strong change the worst is behind me now.  
+This project ... it's life threateningly dangerous for my mental state to process, without support, or without my needs met, without someone to really hold their arm under mine. That's not any different than it normally is, but I am akwnoledging that to myself now ... 
 
-I'm processing all 36 years at once. Writing things out. Making it public. This is what I've hidden all my life, being afraid. I've been terrified all my life and my life was ... a storm. That sucks. Well, it more than sucks, but I don't want to think too much in that area right now - > see above somewhere where I noted my hyper sensitivty to thought images. 
+HOWEVER, there is a very strong chance the worst is behind me now.  The Strongest structures that needed demolishing and rebuilding have been addressed. 
 
-I'm making myself vulnurable in all areas at once, in a way I haven't ever done before, and owning who I am now. There still isn't any value for myself, intrinsically. It seems the chemical background ... like, I'm so depressed that I can FEEL when just a little bit of dopamine hits, some feedback ... I flip back to normal so quick... but it shows me how much I was without it. 
+I'm processing all 36 years at once. Writing things out. Making it public. This is what I've hidden all my life, being afraid. I've been terrified all my life and my life was ... a storm. That sucks. Well, it more than sucks, but I don't want to think too much in that area right now - > see above somewhere where I noted my hyper-sensitivty to thought images. 
+
+I'm making myself vulnurable in all areas at once, in a way I haven't ever done before, and owning who I am now. 
+
+There still isn't any value for myself, intrinsically. It seems the chemical background ... like, I'm so depressed that I can FEEL when just a little bit of dopamine hits, some feedback ... I flip back to normal so quick... but it shows me how much I was without it. 
 
 When you can feel your coditioning, trying to re-write it, while thinking it through, taking ... account of an entire life of nothing but pain ... and doing that all at once ... it's ... destabalizing. 
 
@@ -311,4 +315,26 @@ But. But, I am doing this the right way. There is just so much damage to deal wi
 Off to write in the Myth System Section for a while. 
 
 ##
+
+Myth System Section seems to have mostly come together. I have some Diagrams I may or may not add, or go back through with a few extra adds in places. I definitely need to clean up the grammar in places and spelling. 
+
+I'm process-writing, in a sense, and once it's out of my system it seems that I worked though things or ... 
+
+It's hard to describe this but... going through therapy ... my mind needs a place to "Put" things. To almost say they have been addressed. 
+
+Often times, if I'm working through a beat, or drawing, coming up with a new technique, if I don't write it down... it hasn't been officially developed in my mind. Once it's written down, it's like a reference point for all the information that my brain has tagged along with it and it gets me into a certain "frame" much easier. 
+
+An example of this... when I was really digging into the furthest depths I could personally find to rap structure and got it working so well in my head that it's sort of just like another language that I know now... it became easier to resonante with what I was listening too. 
+
+I started to have anxiety of influence all the time... which by itself is sort of a dumb idea... we are literally influneced on the baseline level of human and that's what made us what we are... we should embrace and encourage further thinking into what made us that instead of ... pushing things away, in that sense. 
+
+Anyways, when that happened, I created a playlist on spotify. If I got stuck in anxiety on a track for some stupid reason, heard someone do something completely different than what I do, but a certain phonetic element would land in the right place, in a rythme I understand and my brain ... didn't like it haha. Whenever that happened I added that track to that playlist and the issue vanished. It was "putting the thing in it's place" and having it addressed. 
+
+I feel like that is what I'm doing here. I'm caustiously optimistic, let's say, about the future of things today. 
+
+I feel I should say again, this is what processing looks like. In an Honest way. I think that honest part is really important to me. I've never really felt like I've been able to talk without... hurting others? Like the value of others, no matter the pain level I was in, always superseeded my own value and I would just... hold on or help, etc, etc. That's internaly sort of toxic, and this exersize is a type of exposure therapy. In the same sense... like, I used "Sketchbooks" as a name for my early rap work and trying to expose my feels of vulnerability with the asterisk that it wasn't meant to be anything other that sketches... that idea is also what's on display here. Letting my vulnurability be exposed so I can learn to stop tensing the place I'm expecting a punch from? something like that
+
+Enough writing for me for now. I think I'm going to avoid doing alot of sketching until this is completed, since my mind can focus on sketching too long and bypass getting this or music completed. Some stuff always, it's healthy for me to draw, but the rate is going down for a bit. 
+
+
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
