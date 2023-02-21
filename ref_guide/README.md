@@ -48,7 +48,7 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 ##
 
-[Just Some Fun Fantasy Style World Building and Myth Systems for our Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems)
+[Just Some Fun Fantasy Style World Building and Myth System Ideas for our Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems)
 
 ##
 
