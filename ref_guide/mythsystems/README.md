@@ -23,5 +23,6 @@ We also observe that when not directly ... I guess, with us trying to get that e
 This is interesting, cause we can pose a few world building questions here to ... test what we may or may not see: 
   -  How Far out does the affect decay at, when we measure that specific element? or is it just a flat drop when we aren't measuring, basically, with agency, trying to get something to do X. 
   -  If Humans are the only known species to cause this effect to occur in the universe, then ... heh, if someone ever does meet an Extra Terrestrial with concious intelligence, and we are able to communicate, I would be fucking CURIOUS to know if they cause the same effect on the universe.  
+  -  The Concept of a Wave and a Frequency, overlap. The Big Bang is Analogous with the Creation story, at least in the sense of a single origination point, perhaps, or that "Boom" into existance, if nothing else. If we have this aboslute void of nothing, and then this absolute possibility frequency, it sort of looks to me like E=N - that sort of ultimate balanced equation of absolute everything and absolute nothing, in co-existance. 
 
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
