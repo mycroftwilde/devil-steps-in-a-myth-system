@@ -25,6 +25,19 @@ One teachs ritual and the other teaches a persons individual ritual, how to self
 
 Anyways, back to Uncle Alan, when I finally understand what his book was trying to do I became enamored, to a degree, with the style of thinking he had. Watching some documentaries, considered his positions on things, etc. Going through his documentaries, to give an example of myth systems, I think he would or maybe did, intepret reality, at least to some degree, via magic. 
 
+I'm not even sure I would go so far as to see he would see what he did with magic as another other than how we see religion, but that's just a read on my part with my definitions for the same subject, which may cause some ... differences of opinion if not proprerly qualified. 
+
+A way we can see ourselves, and our lens, as well, is something like -> The Universe Begins -> We get to the point of Humans -> We get to the point of You being Born. The Three Main Tentpoints of the timeline to you or me, maybe? Anyways, It's at this point we can qualify some things: 
+
+You're born with that specific set of Genetics, down this human line, all the way from the beginning. You are unique. 
+
+We can probably say there are variables in both term carrying and the birth itself, both going well or having complications causing an issue with the initial growth. 
+
+Then it's conditioning, enviromental effects, on that base, while it grows, learns, puts emotion or meaning behind what it sees as it grows, as a completely unique being that has never existed before. It's like... we get hit with possibility matrix after possibility matrix, a cacophony of them. 
+
+
+- 
+
 
 
 
