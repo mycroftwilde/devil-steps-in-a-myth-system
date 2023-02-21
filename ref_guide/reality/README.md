@@ -63,13 +63,49 @@ This is the interesting part to me... not a single person, just on the frame of 
 
 I can probably go on for a long time, but, let's keep moving... 
 
-So, in a sense, a Myth System is how we representionally understand the World. The Values that we have, individually, behind meaning. This applies to Religion, Non-Religion, This Applies to Governements, and the Concept of ... well, anything, really. Our Catagorization and Internal Reality interpretation System of External Representional Experience... that doesn't exactly flow right, but that really sort of nails the idea.     
+So, in a sense, a Myth System is how we representionally understand the World. The Values that we have, individually, behind meaning. This applies to Religion, Non-Religion, This Applies to Governements, and the Concept of ... well, anything, really. This even applies to concepts and the concept of "concepts." 
 
-
+It's Our Internal Catagorization and Reality interpretationn Lens System of Our External Reality Experience, that is absolutely and utterly unique. It was built from our day one, hit with all the possibilities in a world that is also absolutely and utterly unique.. It changes moment to moment too, after all. 
 
 
 
 The Value that is mostly accurate, but actually not accurate at all, and at the same time... mostly accurate? You may just want to ignore that last sentance of me ... idk, pontificating. 
+
+##
+
+Here is another way you can look at your reality interpretation system. 
+
+Think about going into a new room. Say I invite you over to my place, like "Hey!! Come over, let's hang out and watch the world go by with a couple of drinks and a thing to smoke!"
+
+You get to my place, I meet you out back, behind the apartment building. We talk for a moment and then I bring you back inside. 
+
+When I open the door to my aprtment and go inside there is a huge difference in what we exerpeince, even from an attention and focus level. 
+
+You're walking into an all new room you haven't seen before. You're taking in information. You're "seeing" more than I am. 
+
+I'm walking back into a room I just walked out of and seeing things I know where they all are ... in a sense, it's been catagorized in my mind, and my mind is able to bypass them, from a "completely awake attention" perspective... but... let's say, while I was outside my cat took a shit on the floor... he's an ass, I tell you... well, that new item, that wasn't there before, in a sense wasn't catagorized before, is going to stick out to me because it's different or stark against the expectations and normal bypassing of what we see when we look at things we've catagozied, let's say. 
+
+That difference, I mean we can put it in a graph and go up and down in severity or something, but we all experience some difference in reality moment to moment like that. I think one of the most important things for any individual, is somehow grasping this idea for themselves. With it, we can more easily... idk, either understand what's occuring more clearly, or feel ... less personally affected in our reality experience, at any level of definition? something like that. 
+
+##
+
+Anyways, to wrap things up as a whole, "It's Our Internal Catagorization and Reality interpretationn Lens System of Our External Reality Experience." I think this is a decent overall definition for what a Myth System is. 
+
+It's not TRUTH tho... Religion, let's go back there for a moment. I feel like the image in my head is something like "Religion is a way humans have created different species level myth and lens systems to interpret reality with, but they themselves are like school... they get somethings baseline right for human nature... that we need a system of intepretation or community, resonante love and caring, feeling supported, human pace, a place of ... last resort, perhaps, of reality saftey net, to let us take risks easier...a place where the myth system reality between individuals is ... more connected than in other places... where we are always fighting against a system that doesn't really play well with how we intepret, due to the individuality basis vs community basis...but without the correct other definitions... without clarity in individuality reality and experience and purpose ... it's all a wash. It's just a govenment that tells you it loves you and to understand the world X way because it's easier. 
+
+The thing about it being a wash... Let's think through some things here too... let's apply some overlays, perhaps. 
+
+This always rings in my head, but it is sort of a Meta Reality Truth too. 
+
+"give to caesar what is caesar's"
+
+The thing about religion... even if it's mostly truth, in a intepretatively workable way, it's still OUR attempt to touch on the "God" system of reality. I would say, in the same breathe, almost, that Religion is the worlds way of trying to ecapselate reality, but the second it touches "Human" and becomes a system ... it's broken, we are all individually reality ecapselated and it should better be understood as a ATTEMPT by us... Tag it as belonging to the "World" in a sense, and not whatever diety we worship as the bringing of life and salvation, etc, religion is the school system by which too many broken hands have been in a pot trying to correct and over correct, without taking the individual into account and prioritizing that so that the individual ... actually has agency. The way things appear... 
+
+It's the Story of the Garden of Eden. 
+
+I've had a problem with it a long time. Part of that stems from ... my adhd and not understanding a sort of "not ever changing" life ... but, the problem looks like this: 
+
+Do Adam and Eve get the Choice of: Life and Ignorance, which in essense, looks like Non-Life, because there is no actual ability to make a fully knowledgeable concious choices, or Knowledge and Death, which to me looks like the start of... growth? We are changing all the time... we change moment to moment, second to second. We see. We internalize. We understand. We Grow. We get Hurt. We Change. etc, x infinity... and that is intrinsically tied to LIFE... being ALIVE. Growing, exploring, seeing, experiencing ... without change and choice... we born automitons without knowing it. We out change ... we are dead. Like, our cells, even... "Time" could be better read as "Change" or understood that way. The intrinsic nature of reality itself is CHANGE, and without that... I mean, this just ... like biblical alagory story aside, change and growth appear to be the keey defining factors of life itself.
 
 ##
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
