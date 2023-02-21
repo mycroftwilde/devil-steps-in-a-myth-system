@@ -63,7 +63,13 @@ This is the interesting part to me... not a single person, just on the frame of 
 
 I can probably go on for a long time, but, let's keep moving... 
 
+So, in a sense, a Myth System is how we representionally understand the World. The Values that we have, individually, behind meaning. This applies to Religion, Non-Religion, This Applies to Governements, and the Concept of ... well, anything, really. Our Catagorization and Internal Reality interpretation System of External Representional Experience... that doesn't exactly flow right, but that really sort of nails the idea.     
 
+
+
+
+
+The Value that is mostly accurate, but actually not accurate at all, and at the same time... mostly accurate? You may just want to ignore that last sentance of me ... idk, pontificating. 
 
 ##
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
