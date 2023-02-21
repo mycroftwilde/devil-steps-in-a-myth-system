@@ -105,7 +105,47 @@ It's the Story of the Garden of Eden.
 
 I've had a problem with it a long time. Part of that stems from ... my adhd and not understanding a sort of "not ever changing" life ... but, the problem looks like this: 
 
-Do Adam and Eve get the Choice of: Life and Ignorance, which in essense, looks like Non-Life, because there is no actual ability to make a fully knowledgeable concious choices, or Knowledge and Death, which to me looks like the start of... growth? We are changing all the time... we change moment to moment, second to second. We see. We internalize. We understand. We Grow. We get Hurt. We Change. etc, x infinity... and that is intrinsically tied to LIFE... being ALIVE. Growing, exploring, seeing, experiencing ... without change and choice... we born automitons without knowing it. We out change ... we are dead. Like, our cells, even... "Time" could be better read as "Change" or understood that way. The intrinsic nature of reality itself is CHANGE, and without that... I mean, this just ... like biblical alagory story aside, change and growth appear to be the keey defining factors of life itself.
+Do Adam and Eve get the Choice of: Life and Ignorance, which in essense, looks like Non-Life, because there is no actual ability to make a fully knowledgeable concious choices, or Knowledge and Death, which to me looks like the start of... growth? We are changing all the time... we change moment to moment, second to second. We see. We internalize. We understand. We Grow. We get Hurt. We Change. etc, x infinity... and that is intrinsically tied to LIFE... being ALIVE. Growing, exploring, seeing, experiencing ... without change and choice... we born automitons without knowing it. We without change ... we are dead. Like, our cells, even... "Time" could be better read as "Change" or understood that way. The intrinsic nature of reality itself is CHANGE, and without that... I mean, this just ... like biblical alagory story aside, change and growth appear to be the key defining factors of life itself.
+
+I mean, another idea, I think this is what Trauma is so ... rough ... if change stops... we get stuck ... we change at a different rate, expereience reality differently now ... a stuck reality is a reality that isn't constantly growing and learning and ... engaging with the systems that make human... human. 
+
+There are other baseline things that would affect experience as well, like
+
+- Dehydration 
+- Sleep Deprivation 
+- Depression 
+- Hyper-Vigilance 
+- Mania 
+- Psycosis 
+- Schizophrenia
+- Starvation
+- Allergies
+- ADHD (ADD/ADHD are all under ADHD now)
+- Positive/Negative Emotional Balance and Overall State
+- Exersize and regular movement 
+- DID
+- Pi-Polar Disorder 
+- Sexual Repression or Base Biological needs not being met 
+- General Emotional Stability 
+- Blood Sugar Levels 
+- Caffine Intake 
+- Mediciation Intake 
+- Senses Loss of Definition 
+- Evnironemental Light, C02, Humditiy Levels, Heat
+- Alcohol 
+- Hard Drugs
+- Nicotine
+- Cannibus
+- Musical Emotional Priming 
+- Personal Resonances 
+
+It's really infinite, so I'm going to stop there. 
+
+So, again, our Myth System 
+
+"It's Our Internal Catagorization and Reality interpretationn Lens System of Our External Reality Experience." There is probably more I need to add to that definition, but it will do for now. 
 
 ##
+
+
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
