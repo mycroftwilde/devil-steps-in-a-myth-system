@@ -35,7 +35,13 @@ We can probably say there are variables in both term carrying and the birth itse
 
 Then it's conditioning, enviromental effects, on that base, while it grows, learns, puts emotion or meaning behind what it sees as it grows, as a completely unique being that has never existed before. It's like... we get hit with possibility matrix after possibility matrix, a cacophony of them. 
 
+We must also consider the fact that in "space" and "time" as it were, the world itself is also unique. What's in the Air, the Water, Weather, the Seasons, Animal Life, Plant Life, How much Light is getting to Earth... there is so many things affecting what we think of the earth as a whole... so, it's not just us that is unique. A
 
+Now, too, the other individual realities interacting with ours, during this specific period of "time," they also grew, were affecting by env variables, etc, they are also unique. 
+
+There is no ... baseline truth, or that is to say... we agree, the individual realities, on what we see, together, in a sense. How our mind was literally put together is unique, what we resonant with.. that is Human but is also uniquely us -> Think music. There is a reason music creates what it does in us. There is a reason music as a whole can affect anyone, a sort of meta rule of human. Then there is the unique parts of what we individually hear and are drawn too. What emotion is behind what element, because it was conditioned in at specifc time of growth or emotion in our lives, and maybe the music key characteristics helped it nest better. 
+
+[Music Key Characteristics](https://ledgernote.com/blog/interesting/musical-key-characteristics-emotions/)
 - 
 
 
