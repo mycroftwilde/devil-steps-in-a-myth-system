@@ -54,8 +54,6 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
-[Definition for Art Rap]() (** Soon **)
-
 ##
 
 #### The Project Details: Devil Steps in a Myth System 
