@@ -41,9 +41,11 @@ Now, too, the other individual realities interacting with ours, during this spec
 
 There is no ... baseline truth, or that is to say... we agree, the individual realities, on what we see, together, in a sense. How our mind was literally put together is unique, what we resonant with.. that is Human but is also uniquely us -> Think music. There is a reason music creates what it does in us. There is a reason music as a whole can affect anyone, a sort of meta rule of human. Then there is the unique parts of what we individually hear and are drawn too. What emotion is behind what element, because it was conditioned in at specifc time of growth or emotion in our lives, and maybe the music key characteristics helped it nest better. 
 
-[Music Key Characteristics](https://ledgernote.com/blog/interesting/musical-key-characteristics-emotions/)
-- 
+- [Music Key Characteristics](https://ledgernote.com/blog/interesting/musical-key-characteristics-emotions/)
+ 
+That may also help you understand this part of the idea a bit more. If we understand that Music Keys have emotional Characteristics, we can see that music affects humans, in a sense, however, I'm not sure at what cultural affect, in am emotionally certain way accross the board, right?
 
+Then it's the individual "tastes" that would be assigned after that. 
 
 
 
