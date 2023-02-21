@@ -4,7 +4,7 @@
 
 Myth Systems, that lens of interpretation has always been so interesting to me, even before it was named in my head. 
 
-This comes to my artistic drives again, but something I loved to do was image different worlds, how things fit together, be a world builder, in a sense, from a writing perspective. 
+This comes to my artistic drives again, but something I loved to do was imagine different worlds, how things fit together, be a world builder, in a sense, from a writing perspective. 
 
 When I was younger, trying to think of all the possible things that could be combined, or that would be needed to understand ...a build world from start to end times.. I would make lists for myself. Lists of different Myth Creatures, Names for unique or interesting parts of different animals that could be cross applied to some sort of magic system, religions or different ideas around Religion, etc. I had binders full. That sort of exploration excited me. I think that came from Manga and Anime and the Dominance Hiarachy Climb style of narrative structure in Shonen Manga, as well as pictures and images, while I was listening to music, and the overlays that I experienced while reading and imaging. 
 
@@ -16,7 +16,7 @@ Here are a few:
 
 So, there was this question posed: How Can God be All Powerful, All Loving, and All Merciful, or something like that, and still allow hell to occur, etc. The Thought was an interesting one, but there is an easy solve for that: 
 
-Let's supposed God itself is at the start of "time" or "change" and it's just everything. It's possibility incarnate. Always shifting and never anything specific. Now, if it goes out into this absolute void and tries to create... perhaps it ties itself into the running system. It may get feedback. Let's assume "sin" is an infection, and let's super impose the image of a sinking ship, to a degree, if the ship waits too long it sinks and everyone loses... all while the captain got his hand on the watch like "look, all I can do is what I can do, here is everyone you need to know, etc." 
+Let's supposed God itself is at the start of "time" or "change" and it's just everything. It's possibility incarnate. Always shifting and never anything specific. Now, if it goes out into this absolute void and tries to create... perhaps it ties itself into the running system. It may get feedback. Let's assume "sin" is an infection, and let's super impose the image of a sinking ship, to a degree, if the ship waits too long it sinks and everyone loses...If the infection hits the system, or gets to enough denesity that it changes how possibility works in the system itself, all while the captain got his hand on the watch like "look, all I can do is what I can do, here is everyone you need to know, etc." Then all three elements of that would be true, if we include the fact that personal agency within reality itself has to be respected. And, Alot of running equations at once.
 
 
 
