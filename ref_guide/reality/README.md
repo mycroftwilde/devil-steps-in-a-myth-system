@@ -143,7 +143,7 @@ It's really infinite, so I'm going to stop there.
 
 So, again, our Myth System 
 
-"It's Our Internal Catagorization and Reality interpretationn Lens System of Our External Reality Experience." There is probably more I need to add to that definition, but it will do for now. 
+"It's Our Internal Catagorization and Reality interpretationn Lens System of Our External Reality Experience." There is probably more I need to add to that definition, but for the time being it will do. 
 
 ##
 
