@@ -294,4 +294,21 @@ It seems that this project really is causing me to finally process... well, this
 
 ##
 
+I think I feel more ... alive, or, maybe tuned in today. I got back from the 4.20 store and got what I needed. I've eaten, taken my stimulants.
+
+I just looked up while writing this and realized I needed to take my anti depressant. I just took it. 
+
+This project ... it's life threateningly dangerous for my mental state to process, without support, or without my needs met, without someone to really hold their arm under mine. That's not any different than it normally is, but I am akwnoledging that to myself now ... there is a very strong change the worst is behind me now.  
+
+I'm processing all 36 years at once. Writing things out. Making it public. This is what I've hidden all my life, being afraid. I've been terrified all my life and my life was ... a storm. That sucks. Well, it more than sucks, but I don't want to think too much in that area right now - > see above somewhere where I noted my hyper sensitivty to thought images. 
+
+I'm making myself vulnurable in all areas at once, in a way I haven't ever done before, and owning who I am now. There still isn't any value for myself, intrinsically. It seems the chemical background ... like, I'm so depressed that I can FEEL when just a little bit of dopamine hits, some feedback ... I flip back to normal so quick... but it shows me how much I was without it. 
+
+When you can feel your coditioning, trying to re-write it, while thinking it through, taking ... account of an entire life of nothing but pain ... and doing that all at once ... it's ... destabalizing. 
+
+But. But, I am doing this the right way. There is just so much damage to deal with and not enough of anything else. 
+
+Off to write in the Myth System Section for a while. 
+
+##
 [Table of Contents](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide)
