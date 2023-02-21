@@ -21,7 +21,7 @@ The thing about the difference between these two is ... like that's a countries 
 
 In a sense, really, it seems that would be the difference between understanding things as being "Truth" and a "Myth System Representation." 
 
-One teachs ritual and the other teaches a persons individual ritual, how to self define it or quantify it on an individual level, and then when why both the ritual itself and the individual interpretation of the ritual is important. 
+One teaches ritual and the other teaches a person their personal individual ritual, then how to self define it or quantify it on an individual level, and then when why both the ritual itself and the individual interpretation of the ritual is important. 
 
 Anyways, back to Uncle Alan, when I finally understand what his book was trying to do I became enamored, to a degree, with the style of thinking he had. Watching some documentaries, considered his positions on things, etc. Going through his documentaries, to give an example of myth systems, I think he would or maybe did, intepret reality, at least to some degree, via magic. 
 
