@@ -59,7 +59,9 @@ Let's try this... here we go:
 
 "Book."
 
-This is the interesting part to me... not a single person, just on the frame of a single common Noun like that, what resonante the same way. If you thought of a book itself, or pulled up the image of a specific book...  the color of cover, the smell of pages, the size of the book, if it had creases, had a specific emotional value or extra meaning to you personally, if it was a general looking book, with the same general questions as the specific book... if the word itself was thought of, and not really an image, but just knowing what it was and it resonanting in a personally representive way that may be hard to articulate to another indivudual. Someone may have pulled up something like a dictionary definition. 
+This is the interesting part to me... not a single person, just on the frame of a single common Noun like that, would resonante the same way. If you thought of a book itself, or pulled up the image of a specific book...  the color of cover, the smell of pages, the size of the book, if it had creases, had a specific emotional value or extra meaning to you personally, if it was a general looking book, with the same general questions as the specific book... if the word itself was thought of, and not really an image, but just knowing what it was and it resonanting in a personally representive way that may be hard to articulate to another indivudual. Someone may have pulled up something like a dictionary definition, and if that's the case, was it by itself or in the dictionary surrounded by other words too? was that also shown in a book?
+
+I can probably go on for a long time, but, let's keep moving... 
 
 
 
