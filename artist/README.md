@@ -284,9 +284,13 @@ It was good to get that out of my system. I can't hold back anymore - if I try i
 
 Maybe I'll finish the write up... maybe I won't... all part of the process in figuring that out, I guess. 
 
-Either way this project is all I have left in life and I'm struggling to come up with an answer for ... wanting to continue after it's completed. I think that's fucking with me too. What is there after this? I lost everything that mattered, cause it never really mattered, but I was trained to believe it was. 
+Either way this project is all I have left in life and I'm struggling to come up with an answer for ... wanting to continue after it's completed? I think that's fucking with me too. What is there after this? I lost everything that mattered, cause it never really mattered, but I was condiioned to think it did.
 
 I guess, we'll find out soon enough. 
+
+##
+
+It seems that this project really is causing me to finally process... well, this and life, ending my marriage, but staying friends, dealing with what I actually think of my family and friend groups, etc. The unfortunate reality for me is ... I was completely and utterly abondoned... except it happened so long ago that the way things were seemed normal and I was left in the space, while traumatized and just looking to be safe? and could never be safe, because there was literally nothing to ... anchor myself with... but all the time being gaslit about their actual intentions, or lack there of, so they could feel better... The reality is no one really knows themselves, and the pain ... like when someone pushes back and hurts you as a result of you standing up for yourself... they've been triggered. I literally have a hard time ... seeing myself.. it's hard being that sort of ... baseline test for peoples intentions and seeing it all the time.
 
 ##
 
