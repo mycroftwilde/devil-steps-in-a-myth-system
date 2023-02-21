@@ -42,19 +42,19 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
 
-[Perception, Reality, and Myth Systems](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (** Coming Tomorrow **)
+[Myth Systems, our Lens, and Individual Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality)
 
 ##
 
 [Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
-[Definition for Art Rap]() (** Coming Tomorrow **)
+[Definition for Art Rap]() (** Soon **)
 
 ##
 
 #### The Project Details: Devil Steps in a Myth System 
 
-[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/dsinms) (** Coming Tomorrow **)
+[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/dsinms) (** Soon**)
 
 [Format](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
 
