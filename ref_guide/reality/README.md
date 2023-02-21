@@ -23,9 +23,11 @@ In a sense, really, it seems that would be the difference between understanding 
 
 One teaches ritual and the other teaches a person their personal individual ritual, then how to self define it or quantify it on an individual level, and then when why both the ritual itself and the individual interpretation of the ritual is important. 
 
-Anyways, back to Uncle Alan, when I finally understand what his book was trying to do I became enamored, to a degree, with the style of thinking he had. Watching some documentaries, considered his positions on things, etc. Going through his documentaries, to give an example of myth systems, I think he would or maybe did, intepret reality, at least to some degree, via magic. 
+Anyways, back to Uncle Alan, when I finally understand what his book was trying to do I became enamored, to a degree, with the style of thinking he had. Watching some documentaries, considered his positions on things, etc. 
 
-I'm not even sure I would go so far as to see he would see what he did with magic as another other than how we see religion, but that's just a read on my part with my definitions for the same subject, which may cause some ... differences of opinion if not proprerly qualified. 
+Going through his documentaries, to give an example of Myth Systems, I think he would or maybe did, intepret reality, at least to some degree, via magic. 
+
+If I consider it... I think he sees Magic in the same sense, as how we see religion, and knows it's a reality intepretive lens and plays within it, but that's just a read on my part with my definitions for the same subject, which may cause some ... differences of opinion if not proprerly qualified. 
 
 A way we can see ourselves, and our lens, as well, is something like -> The Universe Begins -> We get to the point of Humans -> We get to the point of You being Born. The Three Main Tentpoints of the timeline to you or me, maybe? Anyways, It's at this point we can qualify some things: 
 
