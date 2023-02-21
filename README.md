@@ -44,19 +44,19 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 [Stories, Meta Story, and What It Tells Us](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/story)
 
-[Perception, Reality, and Myth Systems](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality) (Coming Eventually)
+[Myth Systems, our Lens, and Individual Reality Experience](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/reality)
 
 ##
 
 [Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
-[Definition for Art Rap]() (Coming Eventually)
+[Definition for Art Rap]() (** Soon **)
 
 ##
 
 #### The Project Details: Devil Steps in a Myth System 
 
-[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/dsinms) (Coming Eventually)
+[Devil Steps in a Myth System](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/dsinms) (** Soon**)
 
 [Format](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/method)
 
@@ -70,9 +70,10 @@ This should also give you a better understanding of seeing another persons syste
 
 (I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art ... it may, however, diminish the ego of the artist who isn't prepared, or, maybe, doesn't really know what they are saying ... )
 
+##
+
 [About the Artist/Trauma background](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/artist)
 
 ##
 
-[Return to Main Page](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main)
 
