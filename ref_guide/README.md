@@ -1,3 +1,5 @@
+# Devil Steps in a Myth System
+
 ## Table of Contents
 
 ### Devil Steps in a Myth System - General Concept:
@@ -46,6 +48,10 @@ Because this idea, or it's approach, could be considered sacraligous to some I t
 
 ##
 
+[Just Some Fun Fantasy Style World Building and Myth Systems for our Reality](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/mythsystems)
+
+##
+
 [Definition for Art](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/ref_guide/art)
 
 [Definition for Art Rap]() (** Soon **)
@@ -68,8 +74,8 @@ This should also give you a better understanding of seeing another persons syste
 
 (I'm constantly frustrated by obfuscation for no reason. Clarity doesn't diminish art ... it may, however, diminish the ego of the artist who isn't prepared, or, maybe, doesn't really know what they are saying ... )
 
+##
+
 [About the Artist/Trauma background](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main/artist)
 
 ##
-
-[Return to Main Page](https://github.com/mycroftwilde/devil-steps-in-a-myth-system/tree/main)
