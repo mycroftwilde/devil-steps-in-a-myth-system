@@ -38,8 +38,6 @@ When you fear death more than the depression of life, and living is actually pai
 
 ##
 
-##
-
 #### Trauma Background Stories: 
 
 Stuff Goes Here... 
