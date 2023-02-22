@@ -14,7 +14,11 @@ This project is intended to represent this idea - that we must first approach th
 
 ##
 
-Things go here... 
+Let's Define things with a few images at first, maybe. Or, perhaps, statements. 
+
+This is about... truely displying the internally battled emotional hurricane, and what things could feel like for someone like me, or others, who viserally experience reality due to mental illness, trauma, and a Neuro-Non-typical Mind. 
+
+It's about displaying the potential that was ... bottled up for the ... prioritization, perhaps, of everyone else. Processing is a bitch like that, right, like if things build up... we know things, we understand them, but the emotional... rainbow of this, or the viseral reality of it, still needs to be expressed. 
 
 ##
 
