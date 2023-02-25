@@ -338,11 +338,6 @@ Enough writing for me for now. I think I'm going to avoid doing alot of sketchin
 
 ##
 
-Another version of events, with a different focusing point: 
-
-
-the last of my trauma looks like this:
-
 I need to let out what I hold in, or held in, in a way that it has been dealt with ... in a way my ... seemily complex system recognizes.
 
 As far as I can tell, I need to let my anger out in regards to being gaslit by my entire reality, and the trauma that it caused me over a lifetime by the echos of bouncing sound.  I need to be comfortable with self defining my own reality outside of the approval of others and  I need to say that the pain I had it... have... it shouldn't have been held inside for everyone else's comfort. I was never comfortable and no one taught or protected me in a way that ... was outside of their comfortable system of understand... they couldn't or didin't see the real me... they just saw the me they thought I was or they wanted me to be. The more I write and process, the more I move toward the music, track(s) with Xxxxxxxxx, and hopefully others...  the more my brain is finally being ready for people look at me ... regardless of what they think
