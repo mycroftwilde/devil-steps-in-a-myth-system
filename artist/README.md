@@ -8,6 +8,8 @@ I've been told that it's a hard story to read... I'm not sure that I really feel
 
 So, if you were to ask is this hard to write or talk about? No. Not at all. Easy as Breathing, really. 
 
+However, there are things in here that ARE triggering to others... If you are dealing with depression in a heavy way, suicidal thoughts, etc, please be aware this WILL be triggering I would not recommend reading this. If you do, please do it after all the art is completed so that you see the healing that comes with this. Don't go into something without seeing the head tunnel completely defined, at least in regards to something like this. 
+
 ##
 
 #### About my writing and a quick preface: 
